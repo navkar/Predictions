@@ -81,7 +81,8 @@
 * New form of Social media shall be discovered. End of Facebook/Instagram.
 * Aftermath in USA and asset values will go down. Housing and Bond markets will collapse. 
   - Only Physical Gold/Silver bar/coins and Bitcoin will work.
-  - Hyperinflation in USA due to currency collapse.
+  - **Hyperinflation** in USA due to currency collapse.
+  - Significant price increases.
 * Covid will move to Animals. Mass animal species extinctions are possible.
 * Slaughter free meat will be in vogue.
 * Democratic movement in China.
@@ -129,7 +130,10 @@
 * Boundary changes in India (Nepal/Bangladesh/POK part of Indias territory)
 * Elimination of caste system 
 * Smaller sized decentralized governments
-* Breakup of the United States of America, as well as the European Union and the United Kingdom.
+* Breakup of the USA, as well as the EU and the UK.
+  - Northern States of America 
+  - Southern States of America 
+  - Texas shall be combined with Mexico, a definite possibility.   
 
 ### Answer the following questions for yourself 
 
