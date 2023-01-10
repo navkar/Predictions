@@ -9,8 +9,8 @@
 * Housing Market Crisis especially in REITs
 * Lower used car prices (Car price crash)
 * New Covid variant starting from March until November 2023. (solution: usage of UVC/HEPA filters)
-* Stock market crash by March - June 2023. **(S&P 500 will touch 3200)**
-* Gold prices will be up in 2023, exceeding $2000/ounce after a crash, there is a V shaped recovery for gold after touching the bottom. 
+* Stock market crash by March - June 2023. **(S&P 500 will go down to 3200)**
+* Gold prices will be up in 2023, exceeding $2000/ounce after a crash. Note there will be a 'V' shaped recovery for gold after touching the bottom. (https://goldprice.org/)
 * March 2023 is a critical month for the uprising in China/Iran and India.
 * Possible break up of Big-tech companies into smaller companies starting March 2023 
 
@@ -82,6 +82,7 @@
 
 * Electric planes, you cannot fly more than 2 hours in a single flight.
    - For example: It will take 11 days to go from USA to India
+   - Free Nuclear energy due to abundance using fusion technology.
 * USA will drop the word **UNITED**. Possibility of some states joining Canada.
 * New building materials (**3D printed homes**) will make it effortless to move from one to place to another.
 * Mind shopping - you can visualize an item and it will show up.
@@ -95,7 +96,7 @@
 
 * Boundary changes in India (Nepal/Bangladesh/POK part of Indias territory)
 * Elimination of caste system 
-* Smaller sized governments
+* Smaller sized decentralized governments
 
 
 ### Answer the following questions for yourself ###
