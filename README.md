@@ -17,12 +17,15 @@
 
 * Dollar and Global Currency Crisis starting in March 2023. [$DXY will be down](https://www.tradingview.com/chart/?symbol=TVC%3ADXY) 
 * Significant economy collapse in Japan/UK and finally USA. 
+* Possibility of Dollar losing the reserve currency status.
+* Dollar De-peg by other countries.
+* Birth of a new financial system (based on real assets or commodities)
 
 #### Digital Currency - CBDC (Central Bank Digital Currency) ####
 
 * Introduction of Digital Dollar and Digital Euro `(CBDC)` by April 2023
 * Nuclear energy will be popular due to energy shortages outpacing solar.
-* Possibility of High oil prices
+* Possibility of High oil prices $110-$150/barrel
 
 ### Post June 2023 ###
 
