@@ -10,6 +10,10 @@
 * Gold prices will be up in 2023, exceeding $2000/ounce after a crash, there is a V shaped recovery for gold after touching the bottom. 
 * March 2023 is a critical month for the uprising in China/Iran and India.
 
+#### Global Liquidity Crisis ####
+---
+* Dollar and Global Currency Crisis starting in March 2023
+
 #### Digital Currency - CBDC (Central Bank Digital Currency) ####
 ---
 
