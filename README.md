@@ -1,6 +1,7 @@
 ## Predictions for 2023 & beyond ###
 
-**NOTE**: extensive research has been done to come up with these. Please do not blindly accept them, do you own research.
+##### TLDR
+**NOTE**: Even though extensive research has been done to come up with these, please do **NOT** blindly accept them, do you own research (DYOR).
 
 #### USA 2023 ####
 * Biden would be forced to resign, Kamala will be a short-tem president. Some declaration of constitutional crisis before the summer of 2023
@@ -22,30 +23,30 @@
 * Dollar De-peg by other countries. (https://www.dollarcollapse.com/)
 * Birth of a new financial system (based on real assets or commodities (gold/silver/copper))
 
-#### Digital Currency - CBDC (Central Bank Digital Currency) ####
+#### Digital Currency - CBDC (Central Bank Digital Currency)
 
 * Introduction of Digital Dollar and Digital Euro `(CBDC)` by April 2023
    - Everyone will have a digital wallet on their smartphone and a social credit score. 
 * Nuclear energy will be popular due to energy shortages outpacing solar.
 * Possibility of High oil prices $110-$150/barrel
 
-### Post June 2023 ###
+#### Post June 2023
 
 * Much better overall economy.
 * Possibility of food shortages.
 * Creation of trade unions everywhere in employment.
 * **Dubai** will rise as a central hub and will de-peg with dollar.
 
-### July 22 2023 to September 3, 2023 ###
+#### July 22 2023 to September 3, 2023
 
 * Possiblity of stock market reversal in India/USA.
 
-### November 2023 ###
+#### November 2023 
 
 * Lower home prices in the USA. (Housing lags by 6-9 months from the actual economy)
 * Copper is the leading indicator for any economy.
 
-### India in 2023 ###
+#### India in 2023
 
 * RBI will introduce e-rupee (The CBDC or e-rupee is a legal tender money backed by the RBI)
    - https://www.business-standard.com/article/finance/e-rupee-rbi-creates-rs-1-71-crore-of-digital-currency-for-retail-pilot-122120101215_1.html
@@ -53,7 +54,12 @@
 * Possibility of Tsunami.
 * Covid related sudden death are also possible
 
-### India (January 2024-2025) ###
+#### 2023 Very strange things 
+* Appearance or finding evidence of extra-terrestrial life and organisms.
+* Humans shall become more of a realists that living in an illusion.
+* Mistrust and hatred towards governments.
+
+### India (January 2024-2025) 
 
 * India rising to super power status.
 * **Spirituality movement** starting in India.
@@ -66,7 +72,7 @@
 * Collapse of make-up/fashion/bollywood industry
 * New form of agriculture will be revealed. 
 
-### 2024 - 2025 ###
+#### 2024 - 2025
 
 * Post-COVID era will start in 2024.
 * Aftermath in USA and asset values will go down. Houses and Bond markets will collapse. 
@@ -77,8 +83,14 @@
 * Begining of small sized governments.
 * Self-soverign individual (try developing and practicing your self sovereignty)
 * New political parties in USA. Possible end of GOP.
+* AI generated images/videos and robots. AI will be able to draw out any image that you can describe with words.
+* Advancements in Medical devices
+  - Unintrusive surgery using lasers
+* Invisible realm discovery (dark matter)
+* Healing thru Meditation and mind-body changes will be in vogue due to new frequencies discovery.
+* Discovery of **collective consciousness** 
 
-### 2026 - 2027 ###
+#### 2026 - 2027 
 
 * Electric planes, you cannot fly more than 2 hours in a single flight.
    - For example: It will take 11 days to go from USA to India
@@ -91,18 +103,21 @@
    - Everyone will be nano-chipped.
    - Will we fight against the evolution of our own species? 
 * Wars will be fought online, no boots on the ground (no foot soldiers)
+* Chemical generation of heat, flame less heating surfaces! (some thing of this sort)
+* VR will be fully in vogue.
+* Manifestion using molecules and atoms.
 
-### 2031 (or earlier) ###
+### 2031 (or earlier) 
 
 * Boundary changes in India (Nepal/Bangladesh/POK part of Indias territory)
 * Elimination of caste system 
 * Smaller sized decentralized governments
 
 
-### Answer the following questions for yourself ###
+### Answer the following questions for yourself 
 
 * Are you doing things you shouldn`t be? 
-* Are you taking advantage of the dispossessed in some way? 
+* Are you taking advantage of the dispossessed or others stolen goods in some way? 
 * How can you bring more justice to your activities? 
 * How can you help not only yourself, but people who have a right to feel that they`ve been wronged? 
 * Can you help them find out, that life offers them, more opportunity and support than they expected? 
