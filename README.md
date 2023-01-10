@@ -43,6 +43,7 @@
 
 ### India in 2023 ###
 
+* RBI will introduce e-rupee (The CBDC or e-rupee is a legal tender money backed by the RBI)
 * Possibility of earthquake resulting in mass deaths
 * Possibility of Tsunami.
 * Covid related sudden death are also possible
