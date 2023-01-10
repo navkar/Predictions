@@ -4,7 +4,7 @@
 
 #### USA 2023 ####
 * Biden would be forced to resign, Kamala will be a short-tem president. Some declaration of constitutional crisis before the summer of 2023
-* March - May (possible civil unrest in US)
+* April - June (possible civil unrest in US)
 * Short lived recession from March - September
 * Housing Market Crisis especially in REITs
 * Lower used car prices (Car price crash)
@@ -16,7 +16,7 @@
 
 #### Global Liquidity Crisis ####
 
-* Dollar and Global Currency Crisis starting in March 2023. [$DXY will be down](https://www.tradingview.com/chart/?symbol=TVC%3ADXY) 
+* Dollar and Global Currency Crisis starting in March-April 2023. [$DXY will be down](https://www.tradingview.com/chart/?symbol=TVC%3ADXY) 
 * Significant economy deterioration in Japan/UK and finally USA. Higher unemployment numbers.
 * Possibility of Dollar losing the reserve currency status.
 * Dollar De-peg by other countries. (https://www.dollarcollapse.com/)
@@ -68,6 +68,7 @@
 
 ### 2024 - 2025 ###
 
+* Post-COVID era will start in 2024.
 * Aftermath in USA and asset values will go down. Houses and Bond markets will collapse. 
 * Only Physical Gold/Silver bar/coins and Bitcoin will work.
 * Covid will move to Animals. Mass animal species extinctions are possible.
@@ -75,7 +76,7 @@
 * Democratic movement in China.
 * Begining of small sized governments.
 * Self-soverign individual (try developing and practicing your self sovereignty)
-* 
+* New political parties in USA. Possible end of GOP.
 
 ### 2026 - 2027 ###
 
@@ -99,11 +100,11 @@
 
 ### Answer the following questions for yourself ###
 
-* Are you doing things you shouldn’t be? 
+* Are you doing things you shouldn`t be? 
 * Are you taking advantage of the dispossessed in some way? 
 * How can you bring more justice to your activities? 
-* How can you help not only yourself but people who have a right to feel that they’ve been wronged? 
-* Can you help them find out that life offers them more opportunity and support than they expected? 
+* How can you help not only yourself, but people who have a right to feel that they`ve been wronged? 
+* Can you help them find out, that life offers them, more opportunity and support than they expected? 
 * Can you give without expecting in return? 
 * Can you discriminate in the use of your resources in ways that serve the greater good?
 
