@@ -29,7 +29,8 @@
 
 ### Post June 2023 ###
 
-* Much better overall economy
+* Much better overall economy.
+* Possibility of food shortages.
 * Creation of trade unions everywhere in employment.
 
 ### July 22 2023 to September 3, 2023 ###
@@ -46,7 +47,6 @@
 * Possibility of Tsunami.
 * Covid related sudden death are also possible
 
-
 ### January 2024 - 2025 ###
 
 * India rising to super power status.
@@ -58,12 +58,13 @@
 * Meditation will be part of school education medium.
 * Teachers will be high demand and have more value.
 * Collapse of make-up/fashion/bollywood industry
+* New form of agriculture will be revealed. 
 
 ### 2025 ###
 
 * Aftermath in USA and asset values will go down. Houses and Bond markets will collapse. 
 * Only Physical Gold/Silver bar/coins and Bitcoin will work.
-* Covid will move to Animals.
+* Covid will move to Animals. Mass animal species extinctions are possible.
 * Slaughter free meat will be in vogue.
 * Democratic movement in China
 * Begining of small sized governments.
