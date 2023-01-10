@@ -39,7 +39,8 @@
 
 ### November 2023 ###
 
-* Lower home prices in the USA.
+* Lower home prices in the USA. (Housing lags by 6-9 months from the actual economy)
+* Copper is the leading indicator for any economy.
 
 ### India in 2023 ###
 
