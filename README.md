@@ -22,6 +22,7 @@
 * Possibility of Dollar losing the reserve currency status.
 * Dollar De-peg by other countries. (https://www.dollarcollapse.com/)
 * Birth of a new financial system (based on real assets or commodities (gold/silver/copper))
+* Significant decline of non-USD currencies. Eg 1 euro will be USD 0.80
 
 #### Digital Currency - CBDC (Central Bank Digital Currency)
 
@@ -80,6 +81,7 @@
 * New form of Social media shall be discovered. End of Facebook/Instagram.
 * Aftermath in USA and asset values will go down. Housing and Bond markets will collapse. 
   - Only Physical Gold/Silver bar/coins and Bitcoin will work.
+  - Hyperinflation in USA due to currency collapse.
 * Covid will move to Animals. Mass animal species extinctions are possible.
 * Slaughter free meat will be in vogue.
 * Democratic movement in China.
