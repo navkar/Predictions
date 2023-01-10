@@ -46,6 +46,7 @@
 * Spirituality movement starting in India.
   - Someone like `Vivekananda` or `Bhagat Singh` will be born and shall be lead the spirituality movement.
 * India shall be renamed to `Bharath`.
+* Significant possibility of India becoming vegetarian only (completely meat free)
 
 ### 2025 ###
 ---
@@ -53,7 +54,8 @@
 * Aftermath in USA and asset values will go down. Houses and Bond markets will collapse. 
 * Only Physical Gold/Silver bar/coins and Bitcoin will work.
 * Covid will move to Animals.
-* Slaughter free meat will be in vogue
+* Slaughter free meat will be in vogue.
+* Democratic movement in China
 
 ### 2026 - 2027 ###
 ---
@@ -64,11 +66,12 @@
 * Mind shopping - you can visualize an item and it will show up.
 * Trans-humainism - Everyone will be nano-chipped. 
    - Artifical eyes and ears and organs
-* Wars will be found online, no boots on the ground.
+* Wars will be fought online, no boots on the ground (no foot soldiers)
 
 ### 2031 (or earlier) ###
 ---
 * Boundary changes in India (Nepal/Bangladesh/POK part of Indias territory)
-
+* Elimination of caste system 
+* Smaller sized governments
 
 
