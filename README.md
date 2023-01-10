@@ -50,7 +50,7 @@
 ---
 
 * Aftermath in USA and asset values will go down. Houses and Bond markets.
-* Only Gold/Silver and Bitcoin will work.
+* Only Physical Gold/Silver bar/coins and Bitcoin will work.
 
 ### 2026 - 2027 ###
 ---
