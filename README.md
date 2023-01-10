@@ -53,14 +53,14 @@
 * Possibility of Tsunami.
 * Covid related sudden death are also possible
 
-### January 2024 - 2025 ###
+### India (January 2024-2025) ###
 
 * India rising to super power status.
 * **Spirituality movement** starting in India.
   - Someone like `Vivekananda` or `Bhagat Singh` will be born and shall be lead the spirituality movement.
 * India shall be renamed to `Bharath`.
 * Significant possibility of India becoming vegetarian only (completely meat free)
-* Re-evaluation of non-hindu religions in India. 
+* Re-evaluation of non-hindu religions in India. People will question non-hindu religions!
 * Meditation will be part of school education medium.
 * Teachers will be high demand and have more value.
 * Collapse of make-up/fashion/bollywood industry
