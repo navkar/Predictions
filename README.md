@@ -12,11 +12,12 @@
 * Stock market crash by March - June 2023. **(S&P 500 will touch 3200)**
 * Gold prices will be up in 2023, exceeding $2000/ounce after a crash, there is a V shaped recovery for gold after touching the bottom. 
 * March 2023 is a critical month for the uprising in China/Iran and India.
+* Possible break up of Big-tech companies into smaller companies starting March 2023 
 
 #### Global Liquidity Crisis ####
 
 * Dollar and Global Currency Crisis starting in March 2023. [$DXY will be down](https://www.tradingview.com/chart/?symbol=TVC%3ADXY) 
-* Significant economy collapse in Japan/UK and finally USA. 
+* Significant economy deterioration in Japan/UK and finally USA. Higher unemployment numbers.
 * Possibility of Dollar losing the reserve currency status.
 * Dollar De-peg by other countries.
 * Birth of a new financial system (based on real assets or commodities (gold/silver/copper))
@@ -32,6 +33,7 @@
 * Much better overall economy.
 * Possibility of food shortages.
 * Creation of trade unions everywhere in employment.
+* **Dubai** will rise as a central hub and will de-peg with dollar.
 
 ### July 22 2023 to September 3, 2023 ###
 
