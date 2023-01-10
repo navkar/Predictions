@@ -41,6 +41,13 @@
 * Spirituality movement starting in India
 * India shall be renamed to `Bharath`
 
+
+### 2025 ###
+---
+
+* Aftermath in USA and asset values will go down. Houses and Bond markets.
+* Only Gold/Silver and Bitcoin will work.
+
 ### 2026 - 2027 ###
 ---
 * Electric planes, you cannot fly more than 2 hours in a single flight.
