@@ -59,7 +59,7 @@
 
 ### 2031 (or earlier) ###
 ---
-* Boundary changes in India
+* Boundary changes in India (Nepal/Bangladesh/POK part of Indias territory)
 
 
 
