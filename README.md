@@ -19,7 +19,7 @@
 * Significant economy collapse in Japan/UK and finally USA. 
 * Possibility of Dollar losing the reserve currency status.
 * Dollar De-peg by other countries.
-* Birth of a new financial system (based on real assets or commodities)
+* Birth of a new financial system (based on real assets or commodities (gold/silver/copper))
 
 #### Digital Currency - CBDC (Central Bank Digital Currency) ####
 
@@ -32,6 +32,10 @@
 * Much better overall economy
 * Creation of trade unions everywhere in employment.
 
+### July 22 2023 to September 3, 2023 ###
+
+* Possiblity of stock market reversal in India/USA.
+
 ### November 2023 ###
 
 * Lower home prices in the USA.
@@ -39,19 +43,21 @@
 ### India in 2023 ###
 
 * Possibility of earthquake resulting in mass deaths
-* Possibility of Tsunami
+* Possibility of Tsunami.
+* Covid related sudden death are also possible
 
 
 ### January 2024 - 2025 ###
 
 * India rising to super power status.
-* Spirituality movement starting in India.
+* **Spirituality movement** starting in India.
   - Someone like `Vivekananda` or `Bhagat Singh` will be born and shall be lead the spirituality movement.
 * India shall be renamed to `Bharath`.
 * Significant possibility of India becoming vegetarian only (completely meat free)
 * Re-evaluation of non-hindu religions in India. 
 * Meditation will be part of school education medium.
 * Teachers will be high demand and have more value.
+* Collapse of make-up/fashion/bollywood industry
 
 ### 2025 ###
 
@@ -65,7 +71,7 @@
 ### 2026 - 2027 ###
 
 * Electric planes, you cannot fly more than 2 hours in a single flight.
-   - For example: It will take 11 days from USA to India
+   - For example: It will take 11 days to go from USA to India
 * USA will drop the word **UNITED**. Possibility of some states joining Canada.
 * New building materials (**3D printed homes**) will make it effortless to move from one to place to another.
 * Mind shopping - you can visualize an item and it will show up.
