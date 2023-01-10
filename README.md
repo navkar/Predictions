@@ -27,6 +27,7 @@
 
 * Introduction of Digital Dollar and Digital Euro `(CBDC)` by April 2023
    - Everyone will have a digital wallet on their smartphone and a social credit score. 
+   - Announcement of Global One-world digital currency
 * Nuclear energy will be popular due to energy shortages outpacing solar.
 * Possibility of High oil prices $110-$150/barrel
 
@@ -56,16 +57,17 @@
 
 #### 2023 Very strange things 
 * Appearance or finding evidence of extra-terrestrial life and organisms.
-* Humans shall become more of a realists that living in an illusion.
-* Mistrust and hatred towards governments.
+* Humans shall become more of a realists than living in an illusion.
+* Mistrust and hatred towards governments will be in vogue.
 
 ### India (January 2024-2025) 
 
-* India rising to super power status.
+* India slowly rising to super power status.
 * **Spirituality movement** starting in India.
   - Someone like `Vivekananda` or `Bhagat Singh` will be born and shall be lead the spirituality movement.
 * India shall be renamed to `Bharath`.
 * Significant possibility of India becoming vegetarian only (completely meat free)
+  - Lot of products with fake meat shall be in vogue
 * Re-evaluation of non-hindu religions in India. People will question non-hindu religions!
 * Meditation will be part of school education medium.
 * Teachers will be high demand and have more value.
@@ -74,9 +76,10 @@
 
 #### 2024 - 2025
 
-* Post-COVID era will start in 2024.
-* Aftermath in USA and asset values will go down. Houses and Bond markets will collapse. 
-* Only Physical Gold/Silver bar/coins and Bitcoin will work.
+* Post-COVID era will start in 2024 and uses digital currency completely.
+* New form of Social media shall be discovered. End of Facebook/Instagram.
+* Aftermath in USA and asset values will go down. Housing and Bond markets will collapse. 
+  - Only Physical Gold/Silver bar/coins and Bitcoin will work.
 * Covid will move to Animals. Mass animal species extinctions are possible.
 * Slaughter free meat will be in vogue.
 * Democratic movement in China.
@@ -86,7 +89,7 @@
 * AI generated images/videos and robots. AI will be able to draw out any image that you can describe with words.
 * Advancements in Medical devices
   - Unintrusive surgery using lasers
-* Invisible realm discovery (dark matter)
+* Invisible realm discovery (dark matter) is a possibility
 * Healing thru Meditation and mind-body changes will be in vogue due to new frequencies discovery.
 * Discovery of **collective consciousness** 
 
@@ -94,8 +97,9 @@
 
 * Electric planes, you cannot fly more than 2 hours in a single flight.
    - For example: It will take 11 days to go from USA to India (ref: United Airlines is aiming to have electric planes flying by 2030)
-   - Free Nuclear energy due to abundance using fusion technology.
-* USA will drop the word **UNITED**. Possibility of some states joining Canada.
+   - Free Nuclear energy due to abundance using fusion technology. 
+   - Decentralised networks of energy distribution.
+* USA will drop the word **UNITED**. Possibility of some states joining Canada. (see end of decade prediction below)
 * New building materials (**3D printed homes**) will make it effortless to move from one to place to another.
 * Mind shopping - you can visualize an item and it will show up.
 * Trans-humanism - A transhuman is a being that resembles a human in most respects but who has powers and abilities beyond those of standard humans. 
@@ -104,15 +108,26 @@
    - Will we fight against the evolution of our own species? 
 * Wars will be fought online, no boots on the ground (no foot soldiers)
 * Chemical generation of heat, flame less heating surfaces! (some thing of this sort)
-* VR will be fully in vogue.
+* VR will be fully in vogue. 
 * Manifestion using molecules and atoms.
+
+#### 2027 - 2028
+
+* Demonitization of Gold. Gold will be ceased to be a precious metal. 
+* Begining of fully digital era.
+* Advances in virtual and augmented reality will transform gaming and education.
+* Quantum computing could revolutionise cryptography, big data, surveillance, digital IDs and the ever-expanding panopticon. The people may fight back with open-source technology and peer-to-peer networks.
+* Begining of green era.
+* Towns and cities could be redesigned to accommodate smart tech and surveillance, as well as electric cars and charging points.
+* New forms of Transportation.
+* Heavy drone usage
 
 ### 2031 (or earlier) 
 
 * Boundary changes in India (Nepal/Bangladesh/POK part of Indias territory)
 * Elimination of caste system 
 * Smaller sized decentralized governments
-
+* Breakup of the United States of America, as well as the European Union and the United Kingdom.
 
 ### Answer the following questions for yourself 
 
