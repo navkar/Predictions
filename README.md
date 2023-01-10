@@ -19,7 +19,7 @@
 * Dollar and Global Currency Crisis starting in March 2023. [$DXY will be down](https://www.tradingview.com/chart/?symbol=TVC%3ADXY) 
 * Significant economy deterioration in Japan/UK and finally USA. Higher unemployment numbers.
 * Possibility of Dollar losing the reserve currency status.
-* Dollar De-peg by other countries.
+* Dollar De-peg by other countries. (https://www.dollarcollapse.com/)
 * Birth of a new financial system (based on real assets or commodities (gold/silver/copper))
 
 #### Digital Currency - CBDC (Central Bank Digital Currency) ####
@@ -66,14 +66,15 @@
 * Collapse of make-up/fashion/bollywood industry
 * New form of agriculture will be revealed. 
 
-### 2025 ###
+### 2024 - 2025 ###
 
 * Aftermath in USA and asset values will go down. Houses and Bond markets will collapse. 
 * Only Physical Gold/Silver bar/coins and Bitcoin will work.
 * Covid will move to Animals. Mass animal species extinctions are possible.
 * Slaughter free meat will be in vogue.
-* Democratic movement in China
+* Democratic movement in China.
 * Begining of small sized governments.
+* Self-soverign individual (Developing and Practicing Your Self Sovereignty)
 
 ### 2026 - 2027 ###
 
@@ -82,8 +83,9 @@
 * USA will drop the word **UNITED**. Possibility of some states joining Canada.
 * New building materials (**3D printed homes**) will make it effortless to move from one to place to another.
 * Mind shopping - you can visualize an item and it will show up.
-* Trans-humainism - Everyone will be nano-chipped. 
+* Trans-humanism - Everyone will be nano-chipped. 
    - Artifical eyes and ears and organs
+   - A transhuman is a being that resembles a human in most respects but who has powers and abilities beyond those of standard humans.
 * Wars will be fought online, no boots on the ground (no foot soldiers)
 
 ### 2031 (or earlier) ###
