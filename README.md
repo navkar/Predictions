@@ -15,13 +15,14 @@
 
 #### Global Liquidity Crisis ####
 
-* Dollar and Global Currency Crisis starting in March 2023.
+* Dollar and Global Currency Crisis starting in March 2023. [$DXY will be down](https://www.tradingview.com/chart/?symbol=TVC%3ADXY) 
 * Significant economy collapse in Japan/UK and finally USA. 
 
 #### Digital Currency - CBDC (Central Bank Digital Currency) ####
 
 * Introduction of Digital Dollar and Digital Euro `(CBDC)` by April 2023
 * Nuclear energy will be popular due to energy shortages outpacing solar.
+* Possibility of High oil prices
 
 ### Post June 2023 ###
 
@@ -45,6 +46,9 @@
   - Someone like `Vivekananda` or `Bhagat Singh` will be born and shall be lead the spirituality movement.
 * India shall be renamed to `Bharath`.
 * Significant possibility of India becoming vegetarian only (completely meat free)
+* Re-evaluation of non-hindu religions in India. 
+* Meditation will be part of school education medium.
+* Teachers will be high demand and have more value.
 
 ### 2025 ###
 
@@ -53,6 +57,7 @@
 * Covid will move to Animals.
 * Slaughter free meat will be in vogue.
 * Democratic movement in China
+* Begining of small sized governments.
 
 ### 2026 - 2027 ###
 
