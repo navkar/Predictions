@@ -25,6 +25,7 @@
 #### Digital Currency - CBDC (Central Bank Digital Currency) ####
 
 * Introduction of Digital Dollar and Digital Euro `(CBDC)` by April 2023
+   - Everyone will have a digital wallet on their smartphone and a social credit score. 
 * Nuclear energy will be popular due to energy shortages outpacing solar.
 * Possibility of High oil prices $110-$150/barrel
 
