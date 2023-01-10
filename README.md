@@ -10,10 +10,10 @@
 * Gold prices will be up in 2023, exceeding $2000/ounce after a crash, there is a V shaped recovery for gold after touching the bottom. 
 * March 2023 is a critical month for the uprising in China/Iran and India.
 
-#### Digital Currency ####
+#### Digital Currency - CBDC (Central Bank Digital Currency) ####
 ---
 
-* Introduction of Digital Dollar and Digital Euro (CBDC) by April 2023
+* Introduction of Digital Dollar and Digital Euro `(CBDC)` by April 2023
 * Nuclear energy will be popular due to energy shortages outpacing solar.
 
 ### Post June 2023 ###
