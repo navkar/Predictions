@@ -93,7 +93,7 @@
 #### 2026 - 2027 
 
 * Electric planes, you cannot fly more than 2 hours in a single flight.
-   - For example: It will take 11 days to go from USA to India
+   - For example: It will take 11 days to go from USA to India (ref: United Airlines is aiming to have electric planes flying by 2030)
    - Free Nuclear energy due to abundance using fusion technology.
 * USA will drop the word **UNITED**. Possibility of some states joining Canada.
 * New building materials (**3D printed homes**) will make it effortless to move from one to place to another.
