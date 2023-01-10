@@ -1,5 +1,8 @@
-### Predictions for 2023 & beyond ###
----
+## Predictions for 2023 & beyond ###
+
+**NOTE**: extensive research has been done to come up with these. Please do not blindly accept them, do you own research.
+
+#### USA 2023 ####
 * Biden would be forced to resign, Kamala will be a short-tem president. Some declaration of constitutional crisis before the summer of 2023
 * March - May (possible civil unrest in US)
 * Short lived recession from March - September
@@ -11,36 +14,31 @@
 * March 2023 is a critical month for the uprising in China/Iran and India.
 
 #### Global Liquidity Crisis ####
----
+
 * Dollar and Global Currency Crisis starting in March 2023.
 * Significant economy collapse in Japan/UK and finally USA. 
 
 #### Digital Currency - CBDC (Central Bank Digital Currency) ####
----
 
 * Introduction of Digital Dollar and Digital Euro `(CBDC)` by April 2023
 * Nuclear energy will be popular due to energy shortages outpacing solar.
 
 ### Post June 2023 ###
----
 
 * Much better overall economy
 * Creation of trade unions everywhere in employment.
 
 ### November 2023 ###
----
 
 * Lower home prices in the USA.
 
 ### India in 2023 ###
----
 
 * Possibility of earthquake resulting in mass deaths
 * Possibility of Tsunami
 
 
 ### January 2024 - 2025 ###
----
 
 * India rising to super power status.
 * Spirituality movement starting in India.
@@ -49,7 +47,6 @@
 * Significant possibility of India becoming vegetarian only (completely meat free)
 
 ### 2025 ###
----
 
 * Aftermath in USA and asset values will go down. Houses and Bond markets will collapse. 
 * Only Physical Gold/Silver bar/coins and Bitcoin will work.
@@ -58,7 +55,7 @@
 * Democratic movement in China
 
 ### 2026 - 2027 ###
----
+
 * Electric planes, you cannot fly more than 2 hours in a single flight.
    - For example: It will take 11 days from USA to India
 * USA will drop the word **UNITED**. Possibility of some states joining Canada.
@@ -69,9 +66,8 @@
 * Wars will be fought online, no boots on the ground (no foot soldiers)
 
 ### 2031 (or earlier) ###
----
+
 * Boundary changes in India (Nepal/Bangladesh/POK part of Indias territory)
 * Elimination of caste system 
 * Smaller sized governments
-
 
