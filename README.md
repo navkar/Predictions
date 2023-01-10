@@ -55,6 +55,7 @@
 ### 2026 - 2027 ###
 ---
 * Electric planes, you cannot fly more than 2 hours in a single flight.
+   - So it will take 11 days from USA to India
 * USA will drop the word **UNITED**. Possibility of some states joining Canada.
 
 ### 2031 (or earlier) ###
