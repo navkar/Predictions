@@ -74,7 +74,8 @@
 * Slaughter free meat will be in vogue.
 * Democratic movement in China.
 * Begining of small sized governments.
-* Self-soverign individual (Developing and Practicing Your Self Sovereignty)
+* Self-soverign individual (try developing and practicing your self sovereignty)
+* 
 
 ### 2026 - 2027 ###
 
@@ -83,9 +84,10 @@
 * USA will drop the word **UNITED**. Possibility of some states joining Canada.
 * New building materials (**3D printed homes**) will make it effortless to move from one to place to another.
 * Mind shopping - you can visualize an item and it will show up.
-* Trans-humanism - Everyone will be nano-chipped. 
+* Trans-humanism - A transhuman is a being that resembles a human in most respects but who has powers and abilities beyond those of standard humans. 
    - Artifical eyes and ears and organs
-   - A transhuman is a being that resembles a human in most respects but who has powers and abilities beyond those of standard humans.
+   - Everyone will be nano-chipped.
+   - Will we fight against the evolution of our own species? 
 * Wars will be fought online, no boots on the ground (no foot soldiers)
 
 ### 2031 (or earlier) ###
@@ -93,4 +95,20 @@
 * Boundary changes in India (Nepal/Bangladesh/POK part of Indias territory)
 * Elimination of caste system 
 * Smaller sized governments
+
+
+### Answer the following questions for yourself ###
+
+* Are you doing things you shouldn’t be? 
+* Are you taking advantage of the dispossessed in some way? 
+* How can you bring more justice to your activities? 
+* How can you help not only yourself but people who have a right to feel that they’ve been wronged? 
+* Can you help them find out that life offers them more opportunity and support than they expected? 
+* Can you give without expecting in return? 
+* Can you discriminate in the use of your resources in ways that serve the greater good?
+
+
+
+
+
 
