@@ -12,7 +12,8 @@
 
 #### Global Liquidity Crisis ####
 ---
-* Dollar and Global Currency Crisis starting in March 2023
+* Dollar and Global Currency Crisis starting in March 2023.
+* Significant economy collapse in Japan/UK and finally USA. 
 
 #### Digital Currency - CBDC (Central Bank Digital Currency) ####
 ---
@@ -42,21 +43,28 @@
 ---
 
 * India rising to super power status.
-* Spirituality movement starting in India
-* India shall be renamed to `Bharath`
-
+* Spirituality movement starting in India.
+  - Someone like `Vivekananda` or `Bhagat Singh` will be born and shall be lead the spirituality movement.
+* India shall be renamed to `Bharath`.
 
 ### 2025 ###
 ---
 
-* Aftermath in USA and asset values will go down. Houses and Bond markets.
+* Aftermath in USA and asset values will go down. Houses and Bond markets will collapse. 
 * Only Physical Gold/Silver bar/coins and Bitcoin will work.
+* Covid will move to Animals.
+* Slaughter free meat will be in vogue
 
 ### 2026 - 2027 ###
 ---
 * Electric planes, you cannot fly more than 2 hours in a single flight.
-   - So it will take 11 days from USA to India
+   - For example: It will take 11 days from USA to India
 * USA will drop the word **UNITED**. Possibility of some states joining Canada.
+* New building materials (**3D printed homes**) will make it effortless to move from one to place to another.
+* Mind shopping - you can visualize an item and it will show up.
+* Trans-humainism - Everyone will be nano-chipped. 
+   - Artifical eyes and ears and organs
+* Wars will be found online, no boots on the ground.
 
 ### 2031 (or earlier) ###
 ---
