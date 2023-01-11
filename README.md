@@ -41,6 +41,7 @@
 * Possibility of food shortages or empty shelves  
 * Creation of trade unions everywhere in employment.
 * **Dubai** will rise as a central hub and will de-peg with dollar.
+  - Petro-yuan adoption by UAE countries. [ref:](https://markets.businessinsider.com/news/currencies/us-dollar-vs-yuan-china-petroyuan-saudi-arabia-russia-oil-2023-1)
 
 #### July 22 2023 to September 3, 2023
 
