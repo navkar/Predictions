@@ -28,7 +28,7 @@
 #### Digital Currency - CBDC (Central Bank Digital Currency)
 
 * Introduction of Digital Dollar and Digital Euro `(CBDC)` by April 2023
-   - Everyone will have a digital wallet on their smartphone and a social credit score. 
+   - Everyone will have a digital wallet on their smartphone and a social credit score. (2024)
    - Announcement of Global One-world digital currency
 * Nuclear energy will be popular due to energy shortages outpacing solar.
 * Possibility of High oil prices $110-$150/barrel
@@ -48,6 +48,9 @@
 
 * Lower home prices in the USA. (Housing lags by 6-9 months from the actual economy)
 * Copper is the leading indicator for any economy.
+* Solar flares frying cellphone communications
+  - Possibility of cell phone disruptions
+  - Offline survival techniques will prove beneficial
 
 #### India in 2023
 
@@ -57,10 +60,13 @@
 * Possibility of Tsunami.
 * Covid related sudden death are also possible
 
-#### 2023 Very strange things 
+#### 2023 Strange Events
 * Appearance or finding evidence of extra-terrestrial life and organisms.
 * Humans shall become more of a realists than living in an illusion.
+  - Higher reliance of AI
 * Mistrust and hatred towards governments will be in vogue.
+  - Humans moving towards self-dependency and self-sufficiency. 
+  - Self-employment / Small business will be in vogue, since it pays more.
 
 ### India (January 2024-2025) 
 
