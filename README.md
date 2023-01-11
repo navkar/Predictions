@@ -108,6 +108,7 @@
   - Only Physical Gold/Silver/Copper bar/coins and Bitcoin will work.
   - **Hyperinflation** in USA due to currency collapse.
   - Significant food price increases.
+  - Barter system will make a come back due to mistrust in government currency.
 * Covid will move to Animals. Mass animal species extinctions are possible. (2025)
 * Slaughter free meat will be in vogue.
 * Democratic movement in China.
@@ -151,7 +152,11 @@
 * Heavy drone usage
 
 ### 2031 (or earlier) 
-
+* End of so called lifestyle brands. 
+  - New water-less fabric (will stay clean forever kind of)
+* Removal of fear based industries like
+  - Insurance
+  - Banking
 * Boundary changes in India (Nepal/Bangladesh/POK part of Indias territory)
   - Boundaries drawn during partition will be erased.
 * Elimination of caste system in India
@@ -166,6 +171,8 @@
 * What truly makes you happy ?
 * What do you truly value in life ?
 * Are you doing any illegal or immoral activities?
+* Are you self-sufficient ?
+* Do you believe in love and compassion to all beings ?
 * Are you taking advantage of the others stolen goods in some way? 
 * How can you bring more justice to your activities? 
 * How can you help not only yourself, but people who have a right to feel that they've been wronged? 
