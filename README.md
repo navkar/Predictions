@@ -136,18 +136,21 @@
   - Southern States of America 
   - Texas shall be combined with Mexico, a definite possibility.   
 
-### Answer the following questions for yourself 
+### Answer the following questions about yourself for more clarity in your life!
 
-* Are you doing things you shouldn`t be? 
-* Are you taking advantage of the dispossessed or others stolen goods in some way? 
+* What truly makes you happy ?
+* What do you truly value in life ?
+* Are you doing any illegal or immoral activities?
+* Are you taking advantage of the others stolen goods in some way? 
 * How can you bring more justice to your activities? 
-* How can you help not only yourself, but people who have a right to feel that they`ve been wronged? 
+* How can you help not only yourself, but people who have a right to feel that they've been wronged? 
 * Can you help them find out, that life offers them, more opportunity and support than they expected? 
 * Can you give without expecting in return? 
 * Can you discriminate in the use of your resources in ways that serve the greater good?
-
-
-
+* What exactly do you want from life ? 
+* What is that you would want to know that you don't know ?
+* **Why are you here, in this realm ?**
+* **What made you come here, to this page at this time ?**
 
 
 
