@@ -43,6 +43,7 @@
 #### July 22 2023 to September 3, 2023
 
 * Possibility of stock market reversal in India/USA.
+* Flooding / Earthquake in California and/or EU.
 
 #### November 2023 
 
