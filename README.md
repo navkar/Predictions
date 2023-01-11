@@ -148,7 +148,7 @@
 * Can you give without expecting in return? 
 * Can you discriminate in the use of your resources in ways that serve the greater good?
 * What exactly do you want from life ? 
-* What is that you would want to know that you don't know ?
+* What is that you would want to know, that you don't know at this time?
 * **Why are you here, in this realm ?**
 * **What made you come here, to this page at this time ?**
 
