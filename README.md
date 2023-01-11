@@ -93,7 +93,7 @@
 
 * Clear decline of the Western Hegemony. 
   - Multi-polar world (East vs West)
-  - New Growth will come from India/China/Korea and other eastern territories.
+  - New real growth shall come from India/China/Korea and other eastern territories.
   - Significant collapse of fiat based currencies (Euro / Yen etc)
 * Post-COVID era will start in 2024 and uses digital currency completely.
 * New form of Social media shall be discovered. End of Facebook/Instagram.
@@ -101,7 +101,7 @@
   - Only Physical Gold/Silver bar/coins and Bitcoin will work.
   - **Hyperinflation** in USA due to currency collapse.
   - Significant food price increases.
-* Covid will move to Animals. Mass animal species extinctions are possible.
+* Covid will move to Animals. Mass animal species extinctions are possible. (2025)
 * Slaughter free meat will be in vogue.
 * Democratic movement in China.
 * Beginning of small sized governments.
@@ -114,7 +114,7 @@
 * Healing thru Meditation and mind-body changes will be in vogue due to new frequencies discovery.
 * Discovery of **collective consciousness** 
 
-#### 2026 - 2027 - (Golden Age)
+#### 2026 - 2027 - (Golden Age begins)
 
 * Electric planes, you cannot fly more than 2 hours in a single flight.
    - For example: It will take 11 days to go from USA to India (ref: United Airlines is aiming to have electric planes flying by 2030)
