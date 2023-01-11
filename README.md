@@ -67,6 +67,8 @@
 * Mistrust and hatred towards governments will be in vogue.
   - Humans moving towards self-dependency and self-sufficiency. 
   - Self-employment / Small business will be in vogue, since it pays more.
+  - Kids leaving school system and avoid it altogether.
+  - School safely problems
 
 ### India (January 2024-2025) 
 
