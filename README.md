@@ -106,7 +106,7 @@
 * Healing thru Meditation and mind-body changes will be in vogue due to new frequencies discovery.
 * Discovery of **collective consciousness** 
 
-#### 2026 - 2027 
+#### 2026 - 2027 - (Golden Age)
 
 * Electric planes, you cannot fly more than 2 hours in a single flight.
    - For example: It will take 11 days to go from USA to India (ref: United Airlines is aiming to have electric planes flying by 2030)
@@ -126,7 +126,7 @@
 
 #### 2027 - 2028
 
-* Demonitization of **Gold**. Gold will be ceased to be a precious metal. 
+* Demonetization of **Gold**. Gold will be ceased to be a precious metal. 
 * Beginning of fully digital era.
 * Advances in virtual and augmented reality will transform gaming and education.
 * Quantum computing could revolutionise cryptography, big data, surveillance, digital IDs and the ever-expanding panopticon. The people may fight back with open-source technology and peer-to-peer networks.
