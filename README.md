@@ -11,7 +11,7 @@
 * Lower used car prices (Car price crash)
 * New Covid variant starting from March until November 2023. (solution: usage of UVC/HEPA filters)
 * Stock market crash by March - June 2023. **(S&P 500 will go down to 3200)**
-  - Mortals will be worried about 401Ks losing value
+  - Mortals will be worried about pensions, 401Ks losing value
 * Gold prices will be up in 2023, exceeding $2000/ounce after a crash. Note there will be a 'V' shaped recovery for gold after touching the bottom. (https://goldprice.org/)
 * March 2023 is a critical month for the uprising in China/Iran and India.
 * Possible break up of Big-tech companies into smaller companies starting March 2023 
@@ -22,7 +22,7 @@
 * Significant economy deterioration in Japan/UK and finally USA. Higher unemployment numbers.
 * Possibility of Dollar losing the reserve currency status.
 * Dollar De-peg by other countries. (https://www.dollarcollapse.com/)
-* Birth of a new financial system (based on real assets or commodities (gold/silver/copper))
+* Birth of a new financial system (based on real assets or commodities (gold/silver/copper) in physical form)
   - Emergence of new commodity backed currencies. Petro-Yuan? 
 * Significant decline of non-USD currencies. Eg €1 will be USD 0.80 or less.
 * Countries will convert Forex reserves into hard assets like Gold, Food, Energy etc, and quickly move away from USD / EURO.
@@ -101,7 +101,7 @@
 * Post-COVID era will start in 2024 and uses digital currency completely.
 * New form of Social media shall be discovered. End of Facebook/Instagram.
 * Aftermath in USA and asset values will go down. Housing and Bond markets will collapse. 
-  - Only Physical Gold/Silver bar/coins and Bitcoin will work.
+  - Only Physical Gold/Silver/Copper bar/coins and Bitcoin will work.
   - **Hyperinflation** in USA due to currency collapse.
   - Significant food price increases.
 * Covid will move to Animals. Mass animal species extinctions are possible. (2025)
