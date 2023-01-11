@@ -1,10 +1,10 @@
 ## Predictions for 2023 & beyond ###
 
 ##### TLDR
-**NOTE**: Even though extensive research has been done to come up with these, please do **NOT** blindly accept them, do you own research (DYOR).
+**NOTE**: Even though extensive research has been done to come up with these, please do **NOT** blindly accept them, do your own research (DYOR).
 
 #### USA 2023 ####
-* Biden would be forced to resign, Kamala will be a short-tem president. Some declaration of constitutional crisis before the summer of 2023
+* Biden would be forced to resign, Kamala will be a short-tem president. Possibility of declaration of constitutional crisis before the summer of 2023
 * April - June (possible civil unrest in US)
 * Short lived recession from March - September
 * Housing Market Crisis especially in REITs
@@ -22,7 +22,7 @@
 * Possibility of Dollar losing the reserve currency status.
 * Dollar De-peg by other countries. (https://www.dollarcollapse.com/)
 * Birth of a new financial system (based on real assets or commodities (gold/silver/copper))
-* Significant decline of non-USD currencies. Eg 1 euro will be USD 0.80
+* Significant decline of non-USD currencies. Eg 1€ will be USD 0.80
 
 #### Digital Currency - CBDC (Central Bank Digital Currency)
 
