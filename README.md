@@ -89,8 +89,12 @@
 * Meditation will be part of school education medium.
 * Teachers will be high demand and have more value.
 * Collapse of make-up/fashion/bollywood industry
-* New form of agriculture will be revealed. 
+* New form of agriculture and growing organic food will be revealed. 
+  - Hydroponics
+  - Permaculture
+  - Waste into fertilizer (due to fertilizer shortage)
 * **People** will start to sacrifice themselves for greater good. This is very much possible in 2025.
+* Politics will see new compassionate leaders.
 
 #### 2024 - 2025
 
