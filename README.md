@@ -47,6 +47,9 @@
 #### November 2023 
 
 * Lower home prices in the USA. (Housing lags by 6-9 months from the actual economy)
+  - Possible drop in Mortgage rates this time.
+  - Possible good time to buy.
+  - Higher rents for renters
 * Copper is the leading indicator for any economy.
 * Solar flares frying cellphone communications
   - Possibility of cell phone disruptions
