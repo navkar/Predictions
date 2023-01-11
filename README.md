@@ -86,7 +86,7 @@
 * Covid will move to Animals. Mass animal species extinctions are possible.
 * Slaughter free meat will be in vogue.
 * Democratic movement in China.
-* Begining of small sized governments.
+* Beginning of small sized governments.
 * Self-soverign individual (try developing and practicing your self sovereignty)
 * New political parties in USA. Possible end of GOP.
 * AI generated images/videos and robots. AI will be able to draw out any image that you can describe with words.
