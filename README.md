@@ -91,6 +91,10 @@
 
 #### 2024 - 2025
 
+* Clear decline of the Western Hegemony. 
+  - Multi-polar world (East vs West)
+  - New Growth will come from India/China/Korea and other eastern territories.
+  - Significant collapse of fiat based currencies (Euro / Yen etc)
 * Post-COVID era will start in 2024 and uses digital currency completely.
 * New form of Social media shall be discovered. End of Facebook/Instagram.
 * Aftermath in USA and asset values will go down. Housing and Bond markets will collapse. 
