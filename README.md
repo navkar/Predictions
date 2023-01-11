@@ -74,6 +74,7 @@
 * Teachers will be high demand and have more value.
 * Collapse of make-up/fashion/bollywood industry
 * New form of agriculture will be revealed. 
+* **People** will start to sacrifice themselves for greater good. This is very much possible in 2025.
 
 #### 2024 - 2025
 
