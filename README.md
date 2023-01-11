@@ -35,13 +35,13 @@
 #### Post June 2023
 
 * Much better overall economy.
-* Possibility of food shortages.
+* Possibility of food shortages or empty shelves  
 * Creation of trade unions everywhere in employment.
 * **Dubai** will rise as a central hub and will de-peg with dollar.
 
 #### July 22 2023 to September 3, 2023
 
-* Possiblity of stock market reversal in India/USA.
+* Possibility of stock market reversal in India/USA.
 
 #### November 2023 
 
@@ -112,15 +112,15 @@
 * Wars will be fought online, no boots on the ground (no foot soldiers)
 * Chemical generation of heat, flame less heating surfaces! (some thing of this sort)
 * VR will be fully in vogue. 
-* Manifestion using molecules and atoms.
+* Manifestation using molecules and atoms to create tangible products
 
 #### 2027 - 2028
 
-* Demonitization of Gold. Gold will be ceased to be a precious metal. 
-* Begining of fully digital era.
+* Demonitization of **Gold**. Gold will be ceased to be a precious metal. 
+* Beginning of fully digital era.
 * Advances in virtual and augmented reality will transform gaming and education.
 * Quantum computing could revolutionise cryptography, big data, surveillance, digital IDs and the ever-expanding panopticon. The people may fight back with open-source technology and peer-to-peer networks.
-* Begining of green era.
+* Begining of green era. Carbon footprint labelling on packages  
 * Towns and cities could be redesigned to accommodate smart tech and surveillance, as well as electric cars and charging points.
 * New forms of Transportation.
 * Heavy drone usage
