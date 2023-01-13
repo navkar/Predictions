@@ -3,7 +3,11 @@
 ##### TLDR
 **NOTE**: Even though extensive research has been done to come up with these, please do **NOT** blindly accept them, do your own research (DYOR).
 
-#### USA 2023 ####
+#### Message for this decade 
+* Radical self-reliance and self-sufficiency
+* Survival skills
+
+#### USA 2023
 * Biden would be forced to resign, Kamala will be a short-tem president. Possibility of declaration of constitutional crisis before the summer of 2023
 * April - June (possible civil unrest in US)
 * Short lived recession from March - September
@@ -16,7 +20,7 @@
 * March 2023 is a critical month for the uprising in China/Iran and India.
 * Possible break up of Big-tech companies into smaller companies starting March 2023 
 
-#### Global Liquidity Crisis ####
+#### Global Liquidity Crisis
 
 * Dollar and Global Currency Crisis starting in March-April 2023. [$DXY will be down](https://www.tradingview.com/chart/?symbol=TVC%3ADXY) 
 * Significant economy deterioration in Japan/UK and finally USA. Higher unemployment numbers.
@@ -152,6 +156,9 @@
 * Heavy drone usage
 
 ### 2031 (or earlier) 
+* De-population
+  - Significant chance of 50% reduction in population levels from 2020 to about 4 billion people.
+  - Siginifcant chance of reduction in Animal species as well
 * End of so called lifestyle brands. 
   - New water-less fabric (will stay clean forever kind of)
 * Removal of fear based industries like
