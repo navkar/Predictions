@@ -1,7 +1,7 @@
 ## Predictions for 2023 & beyond ###
 
 ##### TLDR
-**NOTE**: Even though extensive research has been done to come up with these, please do **NOT** blindly accept them, do your own research (DYOR).
+:pushpin: **NOTE**: Even though extensive research has been done to come up with these, please do **NOT** blindly accept them, do your own research (DYOR).
 
 #### Message from the universe :milky_way: for all mortals out there... (2020s to 2031)
 * :neutral_face: Radical self-reliance 
