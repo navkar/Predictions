@@ -147,13 +147,13 @@
 * VR will be fully in vogue. 
 * Manifestation using molecules and atoms to create tangible products
 
-#### 2027 - 2028
+#### 2027 - 2028 (Panopticon era)
 
 * Demonetization of **Gold**. Gold will be ceased to be a precious metal. 
 * Beginning of fully digital era.
 * Advances in virtual and augmented reality will transform gaming and education.
-* Quantum computing could revolutionise cryptography, big data, surveillance, digital IDs and the ever-expanding panopticon. The people may fight back with open-source technology and peer-to-peer networks.
-* Begining of green era. Carbon footprint labelling on packages  
+* Quantum computing could revolutionise cryptography, big data, surveillance, digital IDs. The people may fight back with open-source technology and peer-to-peer networks.
+* Begining of Green era. Carbon footprint labelling on packages  
 * Towns and cities could be redesigned to accommodate smart tech and surveillance, as well as electric cars and charging points.
 * New forms of Transportation.
 * Heavy drone usage
