@@ -3,7 +3,7 @@
 ##### TLDR
 **NOTE**: Even though extensive research has been done to come up with these, please do **NOT** blindly accept them, do your own research (DYOR).
 
-#### Message for this decade 
+#### Message for this decade (2020s to 2031)
 * Radical self-reliance and self-sufficiency
 * Survival skills
 
