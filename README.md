@@ -4,8 +4,9 @@
 **NOTE**: Even though extensive research has been done to come up with these, please do **NOT** blindly accept them, do your own research (DYOR).
 
 #### Message from the universe for all mortals out there... (2020s to 2031)
-* Radical self-reliance and self-sufficiency
-* Survival skills
+* Radical self-reliance 
+* Self-sufficiency (vegetable garden)
+* Survival skills (prevention from immunity based viruses && stupid people)
 
 #### USA 2023
 * Biden would be forced to resign, Kamala will be a short-tem president. Possibility of declaration of constitutional crisis before the summer of 2023
