@@ -72,7 +72,7 @@
   - Possible good time to buy.
   - Higher rents for renters
 * Copper is the leading indicator for any economy.
-* Solar flares frying cellphone communications
+* :collision: Solar flares frying cellphone communications
   - Possibility of cell phone disruptions
   - Offline survival techniques will prove beneficial
 
