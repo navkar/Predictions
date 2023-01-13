@@ -134,6 +134,7 @@
    - For example: It will take 11 days to go from USA to India (ref: United Airlines is aiming to have electric planes flying by 2030)
    - Free Nuclear energy due to abundance using fusion technology. 
    - Decentralised networks of energy distribution.
+   - New forms of transportation (Pods?) which will replace airline industry.
 * USA will drop the word **UNITED**. Possibility of some states joining Canada. (see end of decade prediction below)
 * New building materials (**3D printed homes**) will make it effortless to move from one to place to another.
 * Mind shopping - you can visualize an item and it will show up.
