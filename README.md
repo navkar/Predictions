@@ -11,14 +11,26 @@
 * Biden would be forced to resign, Kamala will be a short-tem president. Possibility of declaration of constitutional crisis before the summer of 2023
 * April - June (possible civil unrest in US)
 * Short lived recession from March - September
+  - Real unemployment will be much higher
 * Housing Market Crisis especially in REITs
 * Lower used car prices (Car price crash)
 * New Covid variant starting from March until November 2023. (solution: usage of UVC/HEPA filters)
 * Stock market crash by March - June 2023. **(S&P 500 will go down to 3200)**
   - Mortals will be worried about pensions, 401Ks losing value
-* Gold prices will be up in 2023, exceeding $2000/ounce after a crash. Note there will be a 'V' shaped recovery for gold after touching the bottom. (https://goldprice.org/)
+* Gold prices will be up in 2023, exceeding $2500/ounce after a crash. Note there will be a 'V' shaped recovery for gold after touching the bottom. (https://goldprice.org/)
 * March 2023 is a critical month for the uprising in China/Iran and India.
-* Possible break up of Big-tech companies into smaller companies starting March 2023 
+* Possible break up of Big-tech companies into smaller companies begining in March 2023 
+
+#### 2023 Strange Events
+* Appearance or finding evidence of extra-terrestrial life and organisms.
+* Humans shall become more of a realists than living in an illusion.
+  - Several people will come forward and reveal the truth.
+  - Higher reliance of AI
+* Mistrust and hatred towards governments will be in vogue.
+  - Humans moving towards self-dependency and self-sufficiency. 
+  - Self-employment / Small business will be in vogue, since it pays more.
+  - Kids leaving school system and avoid it altogether.
+  - School safely problems
 
 #### Global Liquidity Crisis
 
@@ -70,16 +82,6 @@
 * Possibility of earthquake resulting in mass deaths
 * Possibility of Tsunami.
 * Covid related sudden death are also possible
-
-#### 2023 Strange Events
-* Appearance or finding evidence of extra-terrestrial life and organisms.
-* Humans shall become more of a realists than living in an illusion.
-  - Higher reliance of AI
-* Mistrust and hatred towards governments will be in vogue.
-  - Humans moving towards self-dependency and self-sufficiency. 
-  - Self-employment / Small business will be in vogue, since it pays more.
-  - Kids leaving school system and avoid it altogether.
-  - School safely problems
 
 ### India (January 2024-2025) 
 
