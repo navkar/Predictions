@@ -160,7 +160,7 @@
 * Heavy drone usage
 
 ### 2031 (or earlier) 
-* De-population
+* De-population :open_mouth:
   - Significant chance of 50% reduction in population levels from 2020 to about 4 billion people.
   - Siginifcant chance of reduction in Animal species as well
 * End of so called lifestyle brands. 
