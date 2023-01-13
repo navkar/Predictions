@@ -3,12 +3,12 @@
 ##### TLDR
 **NOTE**: Even though extensive research has been done to come up with these, please do **NOT** blindly accept them, do your own research (DYOR).
 
-#### Message from the universe for all mortals out there... (2020s to 2031)
-* Radical self-reliance 
-* Self-sufficiency (vegetable garden)
-* Survival skills (prevention from immunity based viruses && stupid people)
+#### Message from the universe :milky_way: for all mortals out there... (2020s to 2031)
+* :fire: Radical self-reliance 
+* :fire: Self-sufficiency (vegetable garden)
+* :fire: Survival skills (prevention from immunity based viruses && stupid people)
 
-#### USA 2023
+#### USA 2023 :us:
 * Biden would be forced to resign, Kamala will be a short-tem president. Possibility of declaration of constitutional crisis before the summer of 2023
 * April - June (possible civil unrest in US)
 * Short lived recession from March - September
@@ -127,7 +127,7 @@
   - Unintrusive surgery using lasers
 * Invisible realm discovery (dark matter) is a possibility
 * Healing thru Meditation and mind-body changes will be in vogue due to new frequencies discovery.
-* Discovery of **collective consciousness** 
+* Discovery of **collective consciousness** :heart:
 
 #### 2026 - 2027 - (Golden Age begins)
 
@@ -135,7 +135,7 @@
    - For example: It will take 11 days to go from USA to India (ref: United Airlines is aiming to have electric planes flying by 2030)
    - Free Nuclear energy due to abundance using fusion technology. 
    - Decentralised networks of energy distribution.
-   - New forms of transportation (Pods?) which will replace airline industry.
+   - :rocket: New forms of transportation (Pods?) which will replace airline industry.
 * USA will drop the word **UNITED**. Possibility of some states joining Canada. (see end of decade prediction below)
 * New building materials (**3D printed homes**) will make it effortless to move from one to place to another.
 * Mind shopping - you can visualize an item and it will show up.
@@ -148,7 +148,7 @@
 * VR will be fully in vogue. 
 * Manifestation using molecules and atoms to create tangible products
 
-#### 2027 - 2028 (Panopticon era)
+#### 2027 - 2028 (Panopticon era :eyes:)
 
 * Demonetization of **Gold**. Gold will be ceased to be a precious metal. 
 * Beginning of fully digital era.
@@ -177,7 +177,7 @@
   - Southern States of America 
   - Texas shall be combined with Mexico, a definite possibility.   
 
-### Answer the following questions about yourself for more clarity in your life!
+### :question: Answer the following questions about yourself for more clarity in your life!
 
 * What truly makes you happy ?
 * What do you truly value in life ?
