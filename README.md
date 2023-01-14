@@ -6,7 +6,7 @@
 #### Message from the universe :milky_way: for all mortals out there... (2020s to 2031)
 * :neutral_face: Radical self-reliance 
 * :fire: Self-sufficiency (vegetable garden)
-* :mask: Survival skills (prevention from immunity based viruses && stupid people)
+* :mask: Survival skills (prevention from immunity based viruses & stupid people)
 
 #### USA 2023 :us:
 * Biden would be forced to resign, Kamala will be a short-tem president. Possibility of declaration of constitutional crisis before the summer of 2023
@@ -25,13 +25,13 @@
 #### 2023 Strange Events
 * Appearance or finding evidence of extra-terrestrial life and organisms.
 * Humans shall become more of a realists than living in an illusion.
-  - Several people will come forward and reveal the truth.
-  - Higher reliance of AI
+  - Several people will come forward and reveal the truth about the Government or their agenda.
+  - Higher reliance on AI and automation tech due to shortage of workers.
 * Mistrust and hatred towards governments will be in vogue.
   - Humans moving towards self-dependency and self-sufficiency. 
   - Self-employment / Small business will be in vogue, since it pays more.
   - Kids leaving school system and avoid it altogether.
-  - School safely problems
+  - School safely and security problems / incidents
 
 #### Global Liquidity Crisis
 
@@ -65,7 +65,7 @@
 * Possibility of stock market reversal in India/USA.
 * Flooding / Earthquake in California and/or EU.
 
-#### November 2023 
+#### November - December 2023 
 
 * Lower home prices in the USA. (Housing lags by 6-9 months from the actual economy)
   - Possible drop in Mortgage rates this time.
@@ -80,7 +80,8 @@
 
 * RBI will introduce e-rupee (The CBDC or e-rupee is a legal tender money backed by the RBI)
    - https://www.business-standard.com/article/finance/e-rupee-rbi-creates-rs-1-71-crore-of-digital-currency-for-retail-pilot-122120101215_1.html
-* Possibility of earthquake resulting in mass deaths
+* Possibility of earthquake/landslides resulting in mass deaths
+* Possibility of some national security related incidents.
 * Possibility of Tsunami.
 * Covid related sudden death are also possible
 
@@ -136,6 +137,7 @@
    - Free Nuclear energy due to abundance using fusion technology. 
    - Decentralised networks of energy distribution.
    - :rocket: New forms of transportation (Pods?) which will replace airline industry.
+   - Humans will travel less but travel with more passion when they do.
 * USA will drop the word **UNITED**. Possibility of some states joining Canada. (see end of decade prediction below)
 * New building materials (**3D printed homes**) will make it effortless to move from one to place to another.
 * Mind shopping - you can visualize an item and it will show up.
@@ -160,22 +162,31 @@
 * Heavy drone usage
 
 ### 2031 (or earlier) 
+
+#### ROW
+
 * De-population :open_mouth:
   - Significant chance of 50% reduction in population levels from 2020 to about 4 billion people.
   - Siginifcant chance of reduction in Animal species as well
+* Smaller sized decentralized governments everywhere.
+* Community Kitchens due to food shortages
+* Possibility of soil/water contamination in certain parts of the world.
+
+#### USA
+* Breakup of the USA into 3 independent countries.
+  - Northern States of America (Some states will be part of Canada)
+  - Southern States of America 
+  - Texas shall be combined with Mexico, a definite possibility.   
 * End of so called lifestyle brands. 
-  - New water-less fabric (will stay clean forever kind of)
+  - New water-less fabric (will stay clean forever)
 * Removal of fear based industries like
   - Insurance
   - Banking
+
+#### INDIA
 * Boundary changes in India (Nepal/Bangladesh/POK part of Indias territory)
   - Boundaries drawn during partition will be erased.
 * Elimination of caste system in India
-* Smaller sized decentralized governments everywhere.
-* Breakup of the USA, as well as the EU and the UK.
-  - Northern States of America 
-  - Southern States of America 
-  - Texas shall be combined with Mexico, a definite possibility.   
 
 ### :question: Answer the following questions about yourself for more clarity in your life!
 
@@ -194,6 +205,3 @@
 * What is that you would want to know, that you don't know at this time?
 * **Why are you here, in this realm ?**
 * **What made you come here, to this page at this time ?**
-
-
-
