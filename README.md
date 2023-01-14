@@ -192,8 +192,10 @@
 
 * What truly makes you happy ?
 * What do you truly value in life ?
+* What exactly do you want from life ? 
 * Are you doing any illegal or immoral activities?
 * Are you self-sufficient ?
+* What are you thinking about, right now?
 * Do you believe in love and compassion to all beings ?
 * Are you taking advantage of the others stolen goods in some way? 
 * How can you bring more justice to your activities? 
@@ -201,7 +203,6 @@
 * Can you help them find out, that life offers them, more opportunity and support than they expected? 
 * Can you give without expecting in return? 
 * Can you discriminate in the use of your resources in ways that serve the greater good?
-* What exactly do you want from life ? 
 * What is that you would want to know, that you don't know at this time?
 * **Why are you here, in this realm ?**
-* **What made you come here, to this page at this time ?**
+* **What made you come here, to this page right now ?**
