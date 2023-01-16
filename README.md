@@ -9,7 +9,7 @@
 * :mask: Survival skills (prevention from immunity based viruses & stupid people)
 
 #### USA 2023 :us:
-* Biden would be forced to resign, Kamala will be a short-tem president. Possibility of declaration of constitutional crisis before the summer of 2023
+* Biden would be forced to resign, Kamala will be a short-term president. Possibility of declaration of constitutional crisis before the summer of 2023
 * April - June (possible civil unrest in US)
 * Short lived recession from March - September
   - Real unemployment will be much higher
@@ -83,16 +83,17 @@
 * Possibility of earthquake/landslides resulting in mass deaths
 * Possibility of some national security related incidents.
 * Possibility of Tsunami.
-* Covid related sudden death are also possible
+* Covid related sudden deaths are also possible
 
 ### India (January 2024-2025) 
 
-* India slowly rising to super power status.
+* India slowly rising to **super power status**.
 * **Spirituality movement** starting in India.
   - Someone like `Vivekananda` or `Bhagat Singh` will be born and shall be lead the spirituality movement.
+  - Meditation/'Awakening beings' movement will start in India. (Rig Veda references)
 * India shall be renamed to `Bharath`.
 * Significant possibility of India becoming vegetarian only (completely meat free)
-  - Lot of products with fake meat shall be in vogue
+  - Lot of products with fake meat shall be in vogue.
 * Re-evaluation of non-hindu religions in India. People will question non-hindu religions!
 * Meditation will be part of school education medium.
 * Teachers will be high demand and have more value.
@@ -144,15 +145,18 @@
 * Trans-humanism - A transhuman is a being that resembles a human in most respects but who has powers and abilities beyond those of standard humans. 
    - Artifical eyes and ears and organs
    - Everyone will be nano-chipped.
-   - Will we fight against the evolution of our own species? 
+   - Will we fight against the evolution of our own species? Super human-beings ?
 * Wars will be fought online, no boots on the ground (no foot soldiers)
 * Chemical generation of heat, flame less heating surfaces! (some thing of this sort)
 * VR will be fully in vogue. 
 * Manifestation using molecules and atoms to create tangible products
+  - Awakening will be easier. Being happy will be easier. 
+  - Music era re-starts like the 1960-70s.
 
 #### 2027 - 2028 (Panopticon era :eyes:)
 
 * Demonetization of **Gold**. Gold will be ceased to be a precious metal. 
+  - Will Gold be precious when energy is freely available ? Gold is just compressed energy or store-of-value.
 * Beginning of fully digital era.
 * Advances in virtual and augmented reality will transform gaming and education.
 * Quantum computing could revolutionise cryptography, big data, surveillance, digital IDs. The people may fight back with open-source technology and peer-to-peer networks.
