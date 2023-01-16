@@ -174,7 +174,7 @@
   - Siginifcant chance of reduction in Animal species as well
 * Smaller sized decentralized governments everywhere.
 * Community Kitchens due to food shortages
-* Possibility of soil/water contamination in certain parts of the world.
+* Possibility of soil/water radioactive contamination in certain parts of the world.
 
 #### USA
 * Breakup of the USA into 3 independent countries.
