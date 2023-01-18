@@ -189,6 +189,12 @@
   - Insurance
   - Banking
 
+#### Euro Zone
+* Italy and Greece will clearly, be out of Euro zone.
+* Euro currency will be replaced. 
+* Borders will be redrawn around Euro zone countries.
+* Open borders around Euro is very much possible
+
 #### INDIA
 * Boundary changes in India (Nepal/Bangladesh/POK part of Indias territory)
   - Boundaries drawn during partition will be erased.
