@@ -135,7 +135,8 @@
 
 * Electric planes, you cannot fly more than 2 hours in a single flight.
    - For example: It will take 11 days to go from USA to India (ref: United Airlines is aiming to have electric planes flying by 2030)
-   - Free Nuclear energy due to abundance using fusion technology. 
+   - Free nuclear energy due to abundance using fusion technology. (Nuclear energy is very clean)
+   - A clear sign that electricity replaces oil/gasoline.
    - Decentralised networks of energy distribution.
    - :rocket: New forms of transportation (Pods?) which will replace airline industry.
    - Humans will travel less but travel with more passion when they do.
@@ -152,6 +153,7 @@
 * Manifestation using molecules and atoms to create tangible products
   - Awakening will be easier. Being happy will be easier. 
   - Music era re-starts like the 1960-70s.
+
 
 #### 2027 - 2028 (Panopticon era :eyes:)
 
