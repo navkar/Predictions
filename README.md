@@ -21,6 +21,9 @@
   - Weakening of company's earnings being factored
   - Mass death of irrevelant of public companies (100% chance)
 * Gold prices will be up in 2023, exceeding $2500/ounce after a crash. Note there will be a 'V' shaped recovery for gold after touching the bottom. (https://goldprice.org/)
+
+> The desire of gold is not for gold. It is for the means of freedom and benefit. ― Ralph Waldo Emerson
+
 * March 2023 is a critical month for the uprising in China/Iran and India.
 * Possible break up of Big-tech companies into smaller companies begining in March 2023 
 
@@ -43,6 +46,8 @@
 * Dollar De-peg by other countries. (https://www.dollarcollapse.com/)
 * Significant decline of non-USD currencies. Eg €1 will be USD 0.80 or less.
 * Countries will convert Forex reserves into hard assets like Gold, Food, Energy etc, and quickly move away from USD / EURO.
+
+> 'Because gold is honest money it is disliked by dishonest men.' – Ron Paul
 
 #### Emergence of a new financial system 
 
@@ -120,6 +125,9 @@
 * Aftermath in USA and asset values will go down. Housing and Bond markets will collapse. 
   - Only Physical Gold/Silver/Copper bar/coins and Bitcoin will work.
   - **Hyperinflation** in USA due to currency collapse.
+  
+> Inflation is as violent as a mugger, as frightening as an armed robber and as deadly as a hit man.
+
   - Significant food price increases.
   - Barter system will make a come back due to mistrust in government currency.
 * Covid will move to Animals. Mass animal species extinctions are possible. (2025)
