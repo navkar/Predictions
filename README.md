@@ -98,7 +98,7 @@
 * Re-evaluation of non-hindu religions in India. People will question non-hindu religions!
 * Meditation will be part of school education medium.
 * Teachers will be high demand and have more value.
-* Collapse of make-up/fashion/bollywood industry
+* Collapse of make-up/fashion/bollywood industry.
 * New form of agriculture and growing organic food will be revealed. 
   - Hydroponics
   - Permaculture
@@ -106,14 +106,14 @@
 * **People** will start to sacrifice themselves for greater good. This is very much possible in 2025.
 * Politics will see new compassionate leaders.
 
-#### 2024 - 2025
+#### ROW (2024 - 2025)
 
-* Clear decline of the Western Hegemony. 
+* Clear decline of the Western hegemony. 
   - Multi-polar world (East vs West)
   - New real growth shall come from India/China/Korea and other eastern territories.
   - Significant collapse of fiat based currencies (Euro / Yen etc)
-* Post-COVID era will start in 2024 and uses digital currency completely.
-* New form of Social media shall be discovered. End of Facebook/Instagram.
+* Post-COVID era shall begin in 2024
+* New form of Social media shall be discovered. Clear decline of Facebook/Instagram MAU's.
 * Aftermath in USA and asset values will go down. Housing and Bond markets will collapse. 
   - Only Physical Gold/Silver/Copper bar/coins and Bitcoin will work.
   - **Hyperinflation** in USA due to currency collapse.
@@ -126,11 +126,22 @@
 * Self-soverign individual (try developing and practicing your self sovereignty)
 * New political parties in USA. Possible end of GOP.
 * AI generated images/videos and robots. AI will be able to draw out any image that you can describe with words.
-* Advancements in Medical devices
-  - Unintrusive surgery using lasers
 * Invisible realm discovery (dark matter) is a possibility
 * Healing thru Meditation and mind-body changes will be in vogue due to new frequencies discovery.
 * Discovery of **collective consciousness** :heart:
+
+##### Post August 2025
+
+* :coin: New form of currency proposal. (2nd Window)
+  - New definition of Money? (75% chance until March 2028)
+  - Some crypto currencies shall become mainstream (100% chance)
+* Discovery of new forms of transportation
+* Advancements in Space travel (Mars landing missions)
+  - Possibility of humans trashing and contaminating Mars.
+  - Possibility of experimental nuclear explosion in Mars.
+* Miniaturization of everyday things
+* New developments and advancements in Medical devices
+  - Unintrusive surgery using lasers
 
 #### 2026 - 2027 - (Golden Age begins)
 
@@ -152,9 +163,9 @@
 * Chemical generation of heat, flame less heating surfaces! (some thing of this sort)
 * VR will be fully in vogue. 
 * Manifestation using molecules and atoms to create tangible products
-  - Awakening will be easier. Being happy will be easier. 
+  - Awakening will become easier. 
+  - Experiencing happiness will become easier. 
   - Music era re-starts like the 1960-70s.
-
 
 #### 2027 - 2028 (Panopticon era :eyes:)
 
@@ -169,6 +180,20 @@
 * Towns and cities could be redesigned to accommodate smart tech and surveillance, as well as electric cars and charging points.
 * New forms of Transportation.
 * Heavy drone usage
+
+#### 2029 - 2030 (Adoption of Compact lifestyle)
+
+* General themes 
+  - Doing more with less. Humans letting go of stuff.
+  - Being happy with oneself by owning less physical stuff.
+  - Reduction in physical ownership and more just in time renting.
+  - Ability to move instantly from place to another.  
+
+#### Summer of 2030 (Change in Monetary system) - 2032
+
+* :coin: Possiblity of another monetary reset. (Final Window)
+  - New definition of money/wealth? 
+  - What could actually happen? 
 
 ### 2031 (or earlier) 
 
@@ -188,9 +213,11 @@
   - Texas shall be combined with Mexico, a definite possibility.   
 * End of so called lifestyle brands. 
   - New water-less fabric (will stay clean forever)
-* Removal of fear based industries like
+* Removal of fear and greed based industries like
   - Insurance
   - Banking
+  - Lending products
+  - High-Yield products
 
 #### Euro Zone
 * Italy and Greece will clearly, be out of Euro zone.
