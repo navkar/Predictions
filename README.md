@@ -200,17 +200,7 @@
   - Boundaries drawn during partition will be erased.
 * Elimination of caste system in India
 
-### References
-
-* 1984 - George Orwell (Dystopian)
-* Brave New World - Aldous Huxley (Dystopian)
-* The Fourth Turning - Neil Howe (Dystopian)
-* The Sovereign Individual
-* The Infantry Squad Leaders Handbook
-* End of Days - Sylvia Browne (Dystopian)
-* Atlas Shrugged - Ayn Rand
-
-### :question: Answer the following questions about yourself for more clarity in your life!
+#### :question: Answer the following questions about yourself for more clarity in your life!
 
 * What truly makes you happy ?
 * What do you truly value in life ?
@@ -228,3 +218,12 @@
 * What is that you would want to know, that you don't know at this time?
 * **Why are you here, in this realm ?**
 * **What made you come here, to this page right now ?**
+
+## Book References
+* 1984 - George Orwell (Dystopian)
+* Brave New World - Aldous Huxley (Dystopian)
+* The Fourth Turning - Neil Howe (Dystopian)
+* The Sovereign Individual
+* The Infantry Squad Leaders Handbook
+* End of Days - Sylvia Browne (Dystopian)
+* Atlas Shrugged - Ayn Rand
