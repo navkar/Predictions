@@ -301,3 +301,6 @@
 * Marc 'Dr. Doom' Faber
 * Greg Mannarino
 * Todd “Bubba” Horwitz - founder of bubbatrading.com
+* Peter Grandich
+* Clive Thompson - is a retired wealth manager based out of Switzerland.
+* Mark Yusko
