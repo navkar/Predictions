@@ -3,8 +3,8 @@
 ##### TLDR
 :pushpin: **NOTE**: Even though extensive research has been done to come up with these, please do **NOT** blindly accept them, do your own research (DYOR).
 
-#### Message from the universe :milky_way: for all mortals out there... (2020s to 2031)
-* :neutral_face: Radical self-reliance 
+#### Message from the universe for all mortals out there... (2020s to 2031)
+* :neutral_face: Radical self-reliance (hold less cash and more phyiscal assets)
 * :fire: Self-sufficiency (vegetable garden)
 * :mask: Survival skills (prevention from immunity based viruses & stupid people)
 
@@ -47,7 +47,8 @@
 #### Digital Currency - CBDC (Central Bank Digital Currency)
 
 * Introduction of Digital Dollar and Digital Euro `(CBDC)` by April 2023
-   - Everyone will have a digital wallet on their smartphone and a social credit score. (2024)
+   - Loss of trust in Government based currency. Gold is money since last 4000 years.
+   - Everyone will have a digital wallet on their smartphone and a social credit score. (begins 2024)
    - Announcement of Global One-world digital currency
 * Nuclear energy will be popular due to energy shortages outpacing solar.
 * Possibility of High oil prices $110-$150/barrel
