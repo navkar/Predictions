@@ -41,13 +41,14 @@
 * Significant economy deterioration in Japan/UK and finally USA. Higher unemployment numbers.
 * Possibility of Dollar losing the reserve currency status.
 * Dollar De-peg by other countries. (https://www.dollarcollapse.com/)
-* Birth of a new financial system (based on real assets or commodities (gold/silver/copper) in physical form)
-  - Emergence of new commodity backed currencies. Petro-Yuan? 
 * Significant decline of non-USD currencies. Eg €1 will be USD 0.80 or less.
 * Countries will convert Forex reserves into hard assets like Gold, Food, Energy etc, and quickly move away from USD / EURO.
 
-#### Digital Currency - CBDC (Central Bank Digital Currency)
+#### Emergence of a new financial system 
 
+* Birth of a new financial system (based on real assets or commodities (gold/silver/copper) in physical form)
+  - Emergence of new commodity backed currencies. Petro-Yuan? 
+  - CBDC (Central Bank Digital Currency)
 * Introduction of Digital Dollar and Digital Euro `(CBDC)` by April 2023
    - Loss of trust in Government based currency. Gold is money since last 4000 years.
    - Everyone will have a digital wallet on their smartphone and a social credit score. (begins 2024)
