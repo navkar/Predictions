@@ -163,7 +163,9 @@
 * Beginning of fully digital era.
 * Advances in virtual and augmented reality will transform gaming and education.
 * Quantum computing could revolutionise cryptography, big data, surveillance, digital IDs. The people may fight back with open-source technology and peer-to-peer networks.
-* Begining of Green era. Carbon footprint labelling on packages  
+* Begining of Green Era (Clear Air Act). Carbon footprint labelling on packages  
+  - ref: https://clevercarbon.io/carbon-labelling-guide/
+  - https://www.nature.com/articles/s41558-021-01271-8
 * Towns and cities could be redesigned to accommodate smart tech and surveillance, as well as electric cars and charging points.
 * New forms of Transportation.
 * Heavy drone usage
