@@ -8,6 +8,8 @@
 * :fire: Self-sufficiency (vegetable garden)
 * :mask: Survival skills (prevention from immunity based viruses & stupid people)
 
+> The two most powerful warriors are patience and time. - Leo Tolstoy
+
 #### USA 2023 :us:
 * Biden would be forced to resign, Kamala will be a short-term president. Possibility of declaration of constitutional crisis before the summer of 2023
 * April - June (possible civil unrest in US)
@@ -75,6 +77,8 @@
 
 * Possibility of stock market reversal in India/USA.
 * Flooding / Earthquake in California and/or EU.
+
+> If you're going through hell, keep going. - Winston Churchill
 
 #### November - December 2023 
 
