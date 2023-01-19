@@ -19,7 +19,7 @@
 * Lower used car prices (Car price crash)
 * New Covid variant starting from March until November 2023. (solution: usage of UVC/HEPA filters)
 * Stock market crash by March - June 2023. **(S&P 500 will go down to 3200)**
-  - Mortals will be worried about pensions, 401Ks losing value.
+  - Mortals will be worried about pensions, 401Ks losing value. People will start questioning why the fund management fees are so high?
   - Weakening of company's earnings being factored
   - Mass death of irrevelant of public companies (100% chance)
 * Gold prices will be up in 2023, exceeding $2500/ounce after a crash. Note there will be a 'V' shaped recovery for gold after touching the bottom. (https://goldprice.org/)
