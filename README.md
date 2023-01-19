@@ -69,7 +69,7 @@
 
 * Lower home prices in the USA. (Housing lags by 6-9 months from the actual economy)
   - Possible drop in Mortgage rates this time.
-  - Possible good time to buy.
+  - Possibly a good time to buy.
   - Higher rents for renters
 * Copper is the leading indicator for any economy.
 * :collision: Solar flares frying cellphone communications
@@ -157,7 +157,7 @@
 
 #### 2027 - 2028 (Panopticon era :eyes:)
 
-* Demonetization of **Gold**. Gold will be ceased to be a precious metal. 
+* Demonetization of **Gold**. Gold ceases to be a precious metal. 
   - Will Gold be precious when energy is freely available ? Gold is just compressed energy or store-of-value.
 * Beginning of fully digital era.
 * Advances in virtual and augmented reality will transform gaming and education.
@@ -199,6 +199,16 @@
 * Boundary changes in India (Nepal/Bangladesh/POK part of Indias territory)
   - Boundaries drawn during partition will be erased.
 * Elimination of caste system in India
+
+### References
+
+* 1984 - George Orwell (Dystopian)
+* Brave New World - Aldous Huxley (Dystopian)
+* The Fourth Turning - Neil Howe (Dystopian)
+* The Sovereign Individual
+* The Infantry Squad Leaders Handbook
+* End of Days - Sylvia Browne (Dystopian)
+* Atlas Shrugged - Ayn Rand
 
 ### :question: Answer the following questions about yourself for more clarity in your life!
 
