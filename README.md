@@ -183,7 +183,7 @@
 
 #### 2029 - 2030 (Adoption of Compact lifestyle)
 
-* General themes 
+* General themes (Did you watch the movie 'Ready Player One'?)
   - Doing more with less. Humans letting go of stuff.
   - Being happy with oneself by owning less physical stuff.
   - Reduction in physical ownership and more just in time renting.
