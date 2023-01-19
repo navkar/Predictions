@@ -8,7 +8,7 @@
 * :fire: Self-sufficiency (vegetable garden)
 * :mask: Survival skills (prevention from immunity based viruses & stupid people)
 
-> The two most powerful warriors are patience and time. - Leo Tolstoy
+> The two most powerful warriors are patience and time. ― Leo Tolstoy
 
 #### USA 2023 :us:
 * Biden would be forced to resign, Kamala will be a short-term president. Possibility of declaration of constitutional crisis before the summer of 2023
@@ -40,7 +40,7 @@
   - Kids leaving school system and avoid it altogether.
   - School safely and security problems / incidents
 
-> The first panacea for a mismanaged nation is inflation of the currency; the second is war. Both bring a temporary prosperity; both bring a permanent ruin. But both are the refuge of political and economic opportunists. – Ernest Hemingway
+> The first panacea for a mismanaged nation is inflation of the currency; the second is war. Both bring a temporary prosperity; both bring a permanent ruin. But both are the refuge of political and economic opportunists. ― Ernest Hemingway
 
 #### Global Liquidity Crisis
 
@@ -51,7 +51,7 @@
 * Significant decline of non-USD currencies. Eg €1 will be USD 0.80 or less.
 * Countries will convert Forex reserves into hard assets like Gold, Food, Energy etc, and quickly move away from USD / EURO.
 
-> 'Because gold is honest money it is disliked by dishonest men.' – Ron Paul
+> 'Because gold is honest money it is disliked by dishonest men.' ― Ron Paul
 
 #### Emergence of a new financial system 
 
@@ -78,7 +78,7 @@
 * Possibility of stock market reversal in India/USA.
 * Flooding / Earthquake in California and/or EU.
 
-> If you're going through hell, keep going. - Winston Churchill
+> If you're going through hell, keep going. ― Winston Churchill
 
 #### November - December 2023 
 
@@ -106,6 +106,9 @@
 * **Spirituality movement** starting in India.
   - Someone like `Vivekananda` or `Bhagat Singh` will be born and shall be lead the spirituality movement.
   - Meditation/'Awakening beings' movement will start in India. (Rig Veda references)
+
+> “One should, perform karma with nonchalance without expecting the benefits because sooner of later one shall definitely gets the fruits.” ― Rig Veda 
+
 * India shall be renamed to `Bharath`.
 * Significant possibility of India becoming vegetarian only (completely meat free)
   - Lot of products with fake meat shall be in vogue.
@@ -119,6 +122,8 @@
   - Waste into fertilizer (due to fertilizer shortage)
 * **People** will start to sacrifice themselves for greater good. This is very much possible in 2025.
 * Politics will see new compassionate leaders.
+
+> We should not give up and we should not allow the problem to defeat us. ― A. P. J. Abdul Kalam
 
 #### ROW (2024 - 2025)
 
@@ -184,6 +189,8 @@
   - Experiencing happiness will become easier. 
   - Music era re-starts like the 1960-70s.
 
+> The purpose of human life is to serve, and to show compassion and the will to help others. - Albert Schweitzer
+
 #### 2027 - 2028 (Panopticon era :eyes:)
 
 * Demonetization of **Gold**. Gold ceases to be a precious metal. 
@@ -197,6 +204,8 @@
 * Towns and cities could be redesigned to accommodate smart tech and surveillance, as well as electric cars and charging points.
 * New forms of Transportation.
 * Heavy drone usage
+
+> “To deny people their human rights is to challenge their very humanity.” — Nelson Mandela
 
 #### 2029 - 2030 (Adoption of Compact lifestyle)
 
