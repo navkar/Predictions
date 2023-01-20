@@ -168,7 +168,7 @@
 * New developments and advancements in Medical devices
   - Unintrusive surgery using lasers
 
-#### 2026 - 2027 - (Golden Age begins)
+#### 2026 - 2027 - (:trophy: Golden Age begins)
 
 * Electric planes, you cannot fly more than 2 hours in a single flight.
    - For example: It will take 11 days to go from USA to India (ref: United Airlines is aiming to have electric planes flying by 2030)
@@ -259,7 +259,7 @@
   - Boundaries drawn during partition will be erased.
 * Elimination of caste system in India
 
-#### :question: Answer the following questions about yourself for more clarity in your life!
+## :flushed: Answer the following questions about yourself for more clarity in your life!
 
 * What truly makes you happy ?
 * What do you truly value in life ?
@@ -278,16 +278,16 @@
 * **Why are you here, in this realm ?**
 * **What made you come here, to this page right now ?**
 
-## Book References
-* 1984 - George Orwell (Dystopian)
-* Brave New World - Aldous Huxley (Dystopian)
-* The Fourth Turning - Neil Howe (Dystopian)
-* The Sovereign Individual
-* The Infantry Squad Leaders Handbook
-* End of Days - Sylvia Browne (Dystopian)
-* Atlas Shrugged - Ayn Rand
+## :books: Book References
+* :bookmark_tabs: 1984 - George Orwell (Dystopian)
+* :bookmark_tabs: Brave New World - Aldous Huxley (Dystopian)
+* :bookmark_tabs: The Fourth Turning - Neil Howe (Dystopian)
+* :bookmark_tabs: The Sovereign Individual
+* :bookmark_tabs: The Infantry Squad Leaders Handbook
+* :bookmark_tabs: End of Days - Sylvia Browne (Dystopian)
+* :bookmark_tabs: Atlas Shrugged - Ayn Rand
 
-## Experts who assisted me in my discovery process
+## :sunglasses: Experts who assisted me in my discovery process
 * Ted Oakley - managing partner & founder of Oxbow Advisors
 * Simon Hunt - Simon Hunt Strategic Services is a leading provider of analysis of the economy and copper production.
 * Alasdair Macleod - A celebrated stockbroker and Member of the London Stock Exchange for over four decades.
