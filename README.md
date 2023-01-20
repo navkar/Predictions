@@ -291,15 +291,15 @@
 * Ted Oakley - managing partner & founder of Oxbow Advisors
 * Simon Hunt - Simon Hunt Strategic Services is a leading provider of analysis of the economy and copper production.
 * Alasdair Macleod - A celebrated stockbroker and Member of the London Stock Exchange for over four decades.
-* John Rubino
+* John Rubino - a former financial analyst, manages DollarCollapse.com
 * Doug Casey
-* Jeff Booth
+* Jeff Booth - a visionary leader who has lived at the forefront of technology change for 20 years.
 * Jim Rogers
-* Peter Boockvar
+* Peter Boockvar - is the Chief Investment Officer at Bleakley Advisory Group
 * Felix Zulauf - renowned macro investor and founder of Zulauf Consulting
 * Lyn Alden - renowned macroeconomic thinker and investor
 * David Rosenberg - Founder and President of Rosenberg Research
-* Rick Rule - If You’re Dumb and Trusting, You Will Be Separated From Your Money
+* Rick Rule - President and CEO, Rule Investment Media LLC says _If You’re Dumb and Trusting, You Will Be Separated From Your Money_
 * Marc 'Dr. Doom' Faber
 * Greg Mannarino
 * Todd “Bubba” Horwitz - founder of bubbatrading.com
