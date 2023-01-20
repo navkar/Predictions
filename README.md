@@ -289,8 +289,8 @@
 
 ## Experts who assisted me in my discovery process
 * Ted Oakley - managing partner & founder of Oxbow Advisors
-* Simon Hunt
-* Alasdair Macleod
+* Simon Hunt - Simon Hunt Strategic Services is a leading provider of analysis of the economy and copper production.
+* Alasdair Macleod - A celebrated stockbroker and Member of the London Stock Exchange for over four decades.
 * John Rubino
 * Doug Casey
 * Jeff Booth
@@ -305,4 +305,4 @@
 * Todd “Bubba” Horwitz - founder of bubbatrading.com
 * Peter Grandich
 * Clive Thompson - is a retired wealth manager based out of Switzerland.
-* Mark Yusko
+* Mark Yusko - the founder, chief investment officer and managing director of Morgan Creek Capital Management.
