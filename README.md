@@ -49,7 +49,7 @@
 * Significant economy deterioration in Japan/UK and finally USA. Higher unemployment numbers.
 * Possibility of Dollar losing the reserve currency status.
 * Dollar De-peg by other countries. (https://www.dollarcollapse.com/)
-* Significant decline of non-USD currencies. Eg €1 will be USD 0.80 or less.
+* Significant decline of non-USD currencies. Eg $1 = €0.80 or less. (Complete collapse of Euro possible)
 * Countries will convert Forex reserves into hard assets like Gold, Food, Energy etc, and quickly move away from USD / EURO.
 
 > 'Because gold is honest money it is disliked by dishonest men.' ― Ron Paul
