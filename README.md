@@ -20,15 +20,15 @@
 * New Covid variant starting from March until November 2023. (solution: usage of UVC/HEPA filters)
 * Stock market crash by March - June 2023. **(S&P 500 will go down to 3200)**
   - Mortals will be worried about pensions, 401Ks losing value. People will start questioning why the fund management fees are so high?
-  - Lot of companies which dont have a cash flow, are trading in the market.
-  - Weakening of company's earnings being factored
-  - Mass death of irrevelant of public companies (100% chance)
+  - Weakening of company's earnings being factored into the indexes.
+  - Mass death of irrevelant public companies (100% chance) that dont have a +ve cash flow.
 * Gold prices will be up in 2023, exceeding $2500/ounce after a crash. Note there will be a 'V' shaped recovery for gold after touching the bottom. (https://goldprice.org/)
 
 > The desire of gold is not for gold. It is for the means of freedom and benefit. ― Ralph Waldo Emerson
 
 * March 2023 is a critical month for the uprising in China/Iran and India.
-* Possible break up of Big-tech companies into smaller companies begining in March 2023 
+* Possible break up of Big-tech companies into smaller companies begining in March 2023
+  - CEOs will be questioned why there is a 1000% pay discrepancy.  
 
 #### 2023 Strange Events
 * Appearance or finding evidence of extra-terrestrial life and organisms.
@@ -39,7 +39,7 @@
   - Humans moving towards self-dependency and self-sufficiency. 
   - Self-employment / Small business will be in vogue, since it pays more.
   - Kids leaving school system and avoid it altogether.
-  - School safely and security problems / incidents
+  - School safely and security problems / XXX incidents
 
 > The first panacea for a mismanaged nation is inflation of the currency; the second is war. Both bring a temporary prosperity; both bring a permanent ruin. But both are the refuge of political and economic opportunists. ― Ernest Hemingway
 
@@ -58,21 +58,23 @@
 
 * Birth of a new financial system (based on real assets or commodities (gold/silver/copper) in physical form)
   - Emergence of new commodity backed currencies. Petro-Yuan? 
-  - CBDC (Central Bank Digital Currency)
+  - CBDC (Central Bank Digital Currency) Tracker (https://cbdctracker.org/)
+  - [What does Federal Reserve say about it?](https://www.federalreserve.gov/faqs/what-is-a-central-bank-digital-currency.htm)
 * Introduction of Digital Dollar and Digital Euro `(CBDC)` by April 2023
    - Loss of trust in Government based currency. Gold is money since last 4000 years.
    - Everyone will have a digital wallet on their smartphone and a social credit score. (begins 2024)
-   - Announcement of Global One-world digital currency
-* Nuclear energy will be popular due to energy shortages outpacing solar.
-* Possibility of High oil prices $110-$150/barrel
+   - Announcement of Global One-world digital currency. [See IMF](https://www.imf.org/en/News/Articles/2022/02/09/sp020922-the-future-of-money-gearing-up-for-central-bank-digital-currency)
+   - Digital wallets are NOT the same as crypto wallets.
+* Possibility of high oil prices $110-$150/barrel
 
 #### Post June 2023
 
 * Much better overall economy.
 * Possibility of food shortages or empty shelves  
 * Creation of trade unions everywhere in employment.
-* **Dubai** will rise as a central hub and will de-peg with dollar.
+* **Dubai** will rise as a central hub and will De-peg with Dollar.
   - Petro-yuan adoption by UAE countries. [ref:](https://markets.businessinsider.com/news/currencies/us-dollar-vs-yuan-china-petroyuan-saudi-arabia-russia-oil-2023-1)
+  - Petro-gold (ref:)[https://bernstein-bank.com/en/russias-petro-gold/]?
 
 #### July 22 2023 to September 3, 2023
 
