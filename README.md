@@ -287,7 +287,7 @@
 * End of Days - Sylvia Browne (Dystopian)
 * Atlas Shrugged - Ayn Rand
 
-## Experts...
+## Experts who assisted me in my discovery process
 * Ted Oakley - managing partner & founder of Oxbow Advisors
 * Simon Hunt
 * Alasdair Macleod
