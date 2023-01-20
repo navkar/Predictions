@@ -106,8 +106,9 @@
 ### India (January 2024-2025) 
 
 * India slowly rising to **super power status**.
-* **Spirituality movement** starting in India.
-  - Someone like `Vivekananda` or `Bhagat Singh` will be born and shall be lead the spirituality movement.
+* **Spirituality movement** beginning in India and shall encompass the entire world.
+  - Someone like `Vivekananda` or `Bhagat Singh` shall be born and lead the spirituality movement.
+  - India shall become the country of seekers and givers, instead of being greedy people.
   - Meditation/'Awakening beings' movement will start in India. (Rig Veda references)
 
 > “One should, perform karma with nonchalance without expecting the benefits because sooner of later one shall definitely gets the fruits.” ― Rig Veda 
