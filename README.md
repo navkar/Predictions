@@ -69,8 +69,8 @@
 
 #### Post June 2023
 
-* Much better overall economy.
-* Possibility of food shortages or empty shelves  
+* :thumbsup: Much better overall economy.
+* Possibility of food :hamburger: shortages or empty shelves  
 * Creation of trade unions everywhere in employment.
 * **Dubai** will rise as a central hub and will De-peg with Dollar.
   - Petro-yuan adoption by UAE countries. [ref:](https://markets.businessinsider.com/news/currencies/us-dollar-vs-yuan-china-petroyuan-saudi-arabia-russia-oil-2023-1)
@@ -168,7 +168,7 @@
 * New developments and advancements in Medical devices
   - Unintrusive surgery using lasers
 
-#### 2026 - 2027 - (:trophy: Golden Age begins)
+#### 2026 - 2027 - :trophy: Golden Age begins
 
 * Electric planes, you cannot fly more than 2 hours in a single flight.
    - For example: It will take 11 days to go from USA to India (ref: United Airlines is aiming to have electric planes flying by 2030)
@@ -194,11 +194,11 @@
 
 > The purpose of human life is to serve, and to show compassion and the will to help others. - Albert Schweitzer
 
-#### 2027 - 2028 (Panopticon era :eyes:)
+#### 2027 - 2028 - Panopticon era :eyes:
 
 * Demonetization of **Gold**. Gold ceases to be a precious metal. 
   - Will Gold be precious when energy is freely available ? Gold is just compressed energy or store-of-value.
-* Beginning of fully digital era.
+* Beginning of fully digital era. Digital :eyes: watching you will be everywhere.
 * Advances in virtual and augmented reality will transform gaming and education.
 * Quantum computing could revolutionise cryptography, big data, surveillance, digital IDs. The people may fight back with open-source technology and peer-to-peer networks.
 * Begining of Green Era (Clear Air Act). Carbon footprint labelling on packages  
