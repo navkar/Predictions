@@ -20,16 +20,18 @@
 * Lower used car prices (Car price crash)
 * New Covid variant starting from March until November 2023. (solution: usage of UVC/HEPA filters)
 * Stock market crash by March - June 2023. **(S&P 500 will go down to 3200)**
-  - Mortals will be worried about pensions, 401Ks losing value. People will start questioning why the fund management fees are so high?
-  - Weakening of company's earnings being factored into the indexes.
-  - Mass death of irrevelant public companies which do not have a positive cash flow. (100% chance)
-* Gold prices will be up in 2023, exceeding $2500/ounce after a crash. Note there will be a 'V' shaped recovery for gold after touching the bottom. (https://goldprice.org/)
+  - Mortals will be worried about pensions, 401Ks losing value. 
+  - People will start questioning why the fund management fees are so high?
+  - Weakening of company's earnings being factored into the stock indexes.
+  - Public companies which do not have a positive cash flow will go bankrupt (100% chance)
+* Gold prices will be up in 2023, exceeding $2500/ounce after a crash. 
+  - There will be a 'V' shaped recovery for gold after touching the bottom. (https://goldprice.org/)
 
 > The desire of gold is not for gold. It is for the means of freedom and benefit. ― Ralph Waldo Emerson
 
 * March 2023 is a critical month for the uprising in China/Iran and India.
 * Possible break up of Big-tech companies into smaller companies begining in March 2023
-  - CEOs will be questioned why there is a 1000% pay discrepancy.  
+  - CEOs will be questioned as to why there is a 1000% pay discrepancy.  
 
 #### 2023 Strange Events
 * Appearance or finding evidence of extra-terrestrial life and organisms.
@@ -152,7 +154,9 @@
   - Barter system will make a come back due to mistrust in government currency.
 * Covid will move to animals. 
   - Mass animal species extinctions are possible. (2025)
-* Slaughter free meat will be in vogue. (Possibility of edible lab rat burger 🍔 will be in vogue)
+* Slaughter-free meat will be in vogue. 
+  - Possibility of edible lab rat burger 🍔 will be in vogue.
+  - Humans will consume lab grown meat with much fanfare and longing.
 * Democratic movement in China.
 * Beginning of small sized governments.
 * Self-soverign individual (try developing and practicing your self sovereignty)
