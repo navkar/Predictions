@@ -129,6 +129,7 @@
   - Waste into fertilizer (due to fertilizer shortage)
 * **People** will start to sacrifice themselves for greater good. This is very much possible in 2025.
 * Politics will see new compassionate leaders.
+* 🙂 **Reverse Brain drain** Possibility of Indian origin people migrating back to India, wishing for better lifestyle and well-being.
 
 > We should not give up and we should not allow the problem to defeat us. ― A. P. J. Abdul Kalam
 
@@ -146,9 +147,11 @@
   
 > Inflation is as violent as a mugger, as frightening as an armed robber and as deadly as a hit man.
 
-  - Significant food price increases.
-  - Barter system will make a come back due to mistrust in government currency.
-* Covid will move to Animals. Mass animal species extinctions are possible. (2025)
+* Significant food price increases.
+  - Organic farm grown food will become very expensive 😧 ($$$). 
+  - Barter system will make a come back due to mistrust in government currency
+* Covid will move to Animals. 
+  - Mass animal species extinctions are possible. (2025)
 * Slaughter free meat will be in vogue.
 * Democratic movement in China.
 * Beginning of small sized governments.
@@ -168,17 +171,19 @@
 * Advancements in Space travel (Mars landing missions)
   - Possibility of humans trashing and contaminating Mars.
   - Possibility of experimental nuclear explosion in Mars.
-* Miniaturization of everyday things
+  - Minerals shall be mined in Asteriods and moons of Jupiter/Saturn. (very probable in 2026-2031)
+* Miniaturization of everyday things.
+  - Invisible technology, all chips and circuits will be smaller and shall become invisible. 
 * New developments and advancements in Medical devices
   - Unintrusive surgery using lasers
 
 #### 2026 - 2027 - :trophy: Golden Age begins
 
-* Electric planes, you cannot fly more than 2 hours in a single flight.
+* Electric planes, you will be unable to fly more than 2 hours in a single leg of journey.
    - For example: It will take 11 days to go from USA to India (ref: United Airlines is aiming to have electric planes flying by 2030)
    - Free nuclear energy due to abundance using fusion technology. (Nuclear energy is very clean)
-   - A clear sign that electricity replaces oil/gasoline.
-   - Decentralised networks of energy distribution.
+   - A clear sign that electricity replaces oil/gasoline. Clear decline of hydrocarbon usage.
+   - Decentralised networks of energy distribution. Every suburb will have its own power generation capability.
    - :rocket: New forms of transportation (Pods?) which will replace airline industry.
    - Humans will travel less but travel with more passion when they do.
 * USA will drop the word **UNITED**. Possibility of some states joining Canada. (see end of decade prediction below)
@@ -210,24 +215,26 @@
   - https://www.nature.com/articles/s41558-021-01271-8
 * Towns and cities could be redesigned to accommodate smart tech and surveillance, as well as electric cars and charging points.
 * New forms of Transportation.
-* Heavy drone usage
+* Heavy drone usage.
+* Decentralized electricity generation and transmission using smaller Nuclear fusion reactors. 
+* Humanity moving towards Kardashev scale type-1. What is Kardashev scale ? (ref:)[https://en.wikipedia.org/wiki/Kardashev_scale]
 
 > “To deny people their human rights is to challenge their very humanity.” — Nelson Mandela
 
 #### 2029 - 2030 (Adoption of Compact lifestyle)
 
 * General themes (Did you watch the movie 'Ready Player One'?)
-  - Doing more with less. Humans letting go of stuff.
+  - Doing more with less. Humans letting go of stuff. In general, humans will own less and rent more often.
   - Being happy with oneself by owning less physical stuff.
   - Reduction in physical ownership and more just-in-time renting.
-  - Ability to move instantly from place to another.  
+  - Ability to move instantly from place to another, due to smaller and portable living spaces.
   - Heavy usage of rental services or just-in-time service providers (Inability to own or lack of onwership will be in vogue)
 
-#### Summer of 2030 (Change in Monetary system) - 2032
+#### Summer of 2030 (Change in monetary system) - 2032
 
 * :coin: Possiblity of another monetary reset. (Final Window)
   - New definition of money/wealth? 
-  - What could actually happen? 
+  - What could actually happen? More on this later...
 
 ### 2031 (or earlier) 
 
@@ -235,9 +242,9 @@
 
 * De-population :open_mouth:
   - Significant chance of 50% reduction in population levels from 2020 to about 4 billion people.
-  - Siginifcant chance of reduction in Animal species as well
+  - Siginifcant chance of reduction in animal species.
 * Smaller sized decentralized governments everywhere.
-* Complete end of Covid-19
+* Complete elimination of Covid-19. New revelations about the origins of covid-19.
 * Community Kitchens due to food shortages.
 * Possibility of soil/water radioactive contamination in certain parts of the world.
 
@@ -252,7 +259,7 @@
   - Insurance
   - Banking
   - Lending products
-  - High-Yield products
+  - High-yield products
 
 #### Euro Zone
 * Italy and Greece will clearly, be out of Euro zone.
@@ -265,14 +272,17 @@
   - Boundaries drawn during partition will be erased.
 * Elimination of caste system in India
 
-### 2044 
+### 2031 - 2044 
 
-* Earths minerals will be fully depleted
-* Possible deforestation of the entire planet
+* New form of connectivity where the human mind shall directly connect with the internet. This is not the internet which we know of today.
+* Earth's minerals will be fully depleted, probes shall bring minerals from Astroids and other moons.
+* Possible deforestation of the entire planet. Greedy humans will eliminate all good plant life from mother earth.
+* Space prisons might be a possibility
+* Humans working in Zero-G is a possibility.
 
 
 
-## :flushed: Answer the following questions about yourself for more clarity in your life!
+## :flushed: Ask yourself
 
 * What truly makes you happy ?
 * What do you truly value in life ?
@@ -291,7 +301,7 @@
 * **Why are you here, in this realm ?**
 * **What made you come here, to this page right now ?**
 
-## :books: Book References
+## :books: References
 * :bookmark_tabs: 1984 - George Orwell (Dystopian)
 * :bookmark_tabs: Brave New World - Aldous Huxley (Dystopian)
 * :bookmark_tabs: The Fourth Turning - Neil Howe (Dystopian)
@@ -319,3 +329,5 @@
 * Peter Grandich
 * Clive Thompson - is a retired wealth manager based out of Switzerland.
 * Mark Yusko - the founder, chief investment officer and managing director of Morgan Creek Capital Management.
+* Unnamed Astrologer - ??
+* Psychic - Her name remains nameless.
