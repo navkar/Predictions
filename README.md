@@ -7,7 +7,7 @@
 * :neutral_face: Radical self-reliance (hold less cash and more physical assets)
 * :fire: Self-sufficiency (vegetable garden)
 * :mask: Survival skills (prevention from immunity based viruses & stupid people)
-* 🥲 Beware of false optimism and human normalcy bias
+* 🥲 Beware of false optimism and human normalcy bias [ref:](https://reboot-foundation.org/everything-you-need-to-know-about-normalcy-bias/)
 
 > The two most powerful warriors are patience and time. ― Leo Tolstoy
 
