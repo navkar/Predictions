@@ -112,7 +112,7 @@
 * **Spirituality movement** beginning in India and shall encompass the entire world.
   - Someone like `Vivekananda` or `Bhagat Singh` shall be born and lead the spirituality movement.
   - India shall become the country of seekers and givers, instead of being bunch of greedy people.
-  - Meditation/'Awakening beings' movement will start in India. (Rig Veda references)
+  - Meditation/**Awakening beings** movement will start in India. (Rig Veda references)
 
 > “One should, perform karma with nonchalance without expecting the benefits because sooner of later one shall definitely gets the fruits.” ― Rig Veda 
 
@@ -129,7 +129,7 @@
   - Waste into fertilizer (due to fertilizer shortage)
 * **People** will start to sacrifice themselves for greater good. This is very much possible in 2025.
 * Politics will see new compassionate leaders.
-* 🙂 **Reverse Brain drain** Possibility of Indian origin people migrating back to India, wishing for better lifestyle and well-being.
+* 🙂 **Reverse Brain drain** Possibility of Indian origin people migrating back to India, wishing and hoping for better lifestyle and well-being.
 
 > We should not give up and we should not allow the problem to defeat us. ― A. P. J. Abdul Kalam
 
@@ -149,17 +149,17 @@
 
 * Significant food price increases.
   - Organic farm grown food will become very expensive 😧 ($$$). 
-  - Barter system will make a come back due to mistrust in government currency
-* Covid will move to Animals. 
+  - Barter system will make a come back due to mistrust in government currency.
+* Covid will move to animals. 
   - Mass animal species extinctions are possible. (2025)
-* Slaughter free meat will be in vogue.
+* Slaughter free meat will be in vogue. (Possibility of edible lab rat burger 🍔 will be in vogue)
 * Democratic movement in China.
 * Beginning of small sized governments.
 * Self-soverign individual (try developing and practicing your self sovereignty)
 * Emergence of new political parties in USA. Possible end of GOP.
-* AI generated images/videos and robots. AI will be able to draw out any image that you can describe with words.
+* AI generated images/videos and robots. AI shall be able to draw out any image that you can describe with words.
 * Invisible realm discovery (dark matter) is a possibility
-* Healing thru Meditation and mind-body changes will be in vogue due to new frequencies discovery.
+* Healing thru Meditation and mind-body changes will be in vogue due to discovery of a new frequency.
 * Discovery of **collective consciousness** :heart:
 
 ##### Post August 2025
@@ -171,7 +171,7 @@
 * Advancements in Space travel (Mars landing missions)
   - Possibility of humans trashing and contaminating Mars.
   - Possibility of experimental nuclear explosion in Mars.
-  - Minerals shall be mined in Asteriods and moons of Jupiter/Saturn. (very probable in 2026-2031)
+  - Minerals shall be mined in Asteroids and moons of Jupiter/Saturn. (very probable in 2026 - 2031)
 * Miniaturization of everyday things.
   - Invisible technology, all chips and circuits will be smaller and shall become invisible. 
 * New developments and advancements in Medical devices
@@ -228,7 +228,7 @@
   - Being happy with oneself by owning less physical stuff.
   - Reduction in physical ownership and more just-in-time renting.
   - Ability to move instantly from place to another, due to smaller and portable living spaces.
-  - Heavy usage of rental services or just-in-time service providers (Inability to own or lack of onwership will be in vogue)
+  - Heavy usage of rental services or just-in-time service providers (Inability to own or lack of ownership will be in vogue)
 
 #### Summer of 2030 (Change in monetary system) - 2032
 
@@ -275,14 +275,12 @@
 ### 2031 - 2044 
 
 * New form of connectivity where the human mind shall directly connect with the internet. This is not the internet which we know of today.
-* Earth's minerals will be fully depleted, probes shall bring minerals from Astroids and other moons.
+* Earth's minerals will be fully depleted, probes shall bring minerals from Astroids and 🌔 moons of Jupiter / Saturn
 * Possible deforestation of the entire planet. Greedy humans will eliminate all good plant life from mother earth.
 * Space prisons might be a possibility
 * Humans working in Zero-G is a possibility.
 
-
-
-## :flushed: Ask yourself
+## :flushed: Ask yourself!
 
 * What truly makes you happy ?
 * What do you truly value in life ?
@@ -297,7 +295,7 @@
 * Can you help them find out, that life offers them, more opportunity and support than they expected? 
 * Can you give without expecting in return? 
 * Can you discriminate in the use of your resources in ways that serve the greater good?
-* What is that you would want to know, that you don't know at this time?
+* What is that you would want to know, that you do not know at this time?
 * **Why are you here, in this realm ?**
 * **What made you come here, to this page right now ?**
 
@@ -329,5 +327,5 @@
 * Peter Grandich
 * Clive Thompson - is a retired wealth manager based out of Switzerland.
 * Mark Yusko - the founder, chief investment officer and managing director of Morgan Creek Capital Management.
-* Unnamed Astrologer - ??
-* Psychic - Her name remains nameless.
+* Astrologer - Anonymous.
+* Psychic - She wants to remain nameless.
