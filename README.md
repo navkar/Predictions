@@ -1,6 +1,6 @@
 ## Predictions for 2023 & beyond ###
 
-##### TLDR
+##### :rainbow: TLDR
 :pushpin: **NOTE**: Even though extensive research has been done to come up with these, please do **NOT** blindly accept them, do your own research (DYOR).
 
 #### Message from the universe for all mortals out there... (2020s to 2031)
@@ -53,7 +53,7 @@
 * Significant economy deterioration in Japan/UK and finally USA. Higher unemployment numbers.
 * Demand destruction event orchestrated to reduce prices/inflation.
 * Possibility of Dollar losing the reserve currency status.
-* Dollar De-peg by other countries. (https://www.dollarcollapse.com/)
+* Dollar De-peg by other countries. [www.dollarcollapse.com](https://www.dollarcollapse.com/)
 * Significant decline of non-USD currencies. Eg $1 = €0.80 or less. (Complete collapse of Euro is very much possible)
 * Countries will convert Forex reserves into hard assets like Gold, Food, Energy etc, and quickly move away from USD / EURO.
 
@@ -63,13 +63,14 @@
 
 * Birth of a new financial system (based on real assets or commodities (gold/silver/copper) in physical form)
   - Emergence of new commodity backed currencies. Petro-Yuan? 
-  - CBDC (Central Bank Digital Currency) Tracker (https://cbdctracker.org/)
+  - CBDC (Central Bank Digital Currency) Tracker [cbdctracker.org](https://cbdctracker.org/)
   - [What does Federal Reserve say about it?](https://www.federalreserve.gov/faqs/what-is-a-central-bank-digital-currency.htm)
 * Introduction of Digital Dollar and Digital Euro `(CBDC)` by April 2023
    - Loss of trust in Government based currency. Gold is money since last 4000 years.
    - Everyone will have a digital wallet on their smartphone and a social credit score. (begins 2024)
    - Announcement of Global One-world digital currency. [See IMF](https://www.imf.org/en/News/Articles/2022/02/09/sp020922-the-future-of-money-gearing-up-for-central-bank-digital-currency)
    - Digital wallets are NOT the same as crypto wallets.
+   -  Stablecoin equivalents for government paper currency will be in play.
 * Possibility of high oil prices $110-$150/barrel
 
 #### Post June 2023
@@ -99,7 +100,7 @@
   - Possibility of cell phone disruptions
   - Offline survival techniques will prove beneficial
 
-#### India in 2023
+#### :india: India in 2023
 
 * RBI will introduce e-rupee (The CBDC or e-rupee is a legal tender money backed by the RBI)
    - [read more](https://www.business-standard.com/article/finance/e-rupee-rbi-creates-rs-1-71-crore-of-digital-currency-for-retail-pilot-122120101215_1.html)
@@ -108,7 +109,7 @@
 * Possibility of Tsunami.
 * Covid related sudden deaths are also possible
 
-### India (January 2024-2025) 
+### :india: India (January 2024-2025) 
 
 * India slowly rising to **super power status**.
 * **Spirituality movement** beginning in India and shall encompass the entire world.
@@ -118,7 +119,7 @@
 
 > “One should, perform karma with nonchalance without expecting the benefits because sooner of later one shall definitely gets the fruits.” ― Rig Veda 
 
-* India shall be renamed to `Bharath`.
+* :india: India shall be renamed to `Bharath`.
 * Significant possibility of India becoming vegetarian only (completely meat free)
   - Lot of products with fake meat shall be in vogue.
 * Re-evaluation of non-hindu religions in India. People will question non-hindu religions!
@@ -157,6 +158,7 @@
 * Slaughter-free meat will be in vogue. 
   - Possibility of edible lab rat burger 🍔 will be in vogue.
   - Humans will consume lab grown meat with much fanfare and longing.
+  - Goverments might force humans to eat bugs and related GMO foods.
 * Democratic movement in China.
 * Beginning of small sized governments.
 * Self-soverign individual (try developing and practicing your self sovereignty)
@@ -183,7 +185,7 @@
 
 #### 2026 - 2027 - :trophy: Golden Age begins
 
-* Electric planes, you will be unable to fly more than 2 hours in a single leg of journey.
+* Electric :airplane: planes, you will be unable to fly more than 2 hours in a single leg of journey.
    - For example: It will take 11 days to go from USA to India (ref: United Airlines is aiming to have electric planes flying by 2030)
    - Free nuclear energy due to abundance using fusion technology. (Nuclear energy is very clean)
    - A clear sign that electricity replaces oil/gasoline. Clear decline of hydrocarbon usage.
@@ -200,6 +202,7 @@
 * Wars will be fought online, no boots on the ground (no foot soldiers)
 * Chemical generation of heat, flame less heating surfaces! (some thing of this sort)
 * VR will be fully in vogue. 
+* :woman: Women leaders will rise to the top.
 * Manifestation using molecules and atoms to create tangible products
   - Awakening will become easier. 
   - Experiencing happiness will become easier. 
@@ -257,7 +260,7 @@
 * Community Kitchens due to food shortages.
 * Possibility of soil/water radioactive contamination in certain parts of the world.
 
-#### USA
+#### :us: USA
 * Breakup of the USA into 3 independent countries.
   - Northern States of America (Some states will be part of Canada)
   - Southern States of America 
@@ -276,7 +279,7 @@
 * Borders will be redrawn around Euro zone countries.
 * Open borders around Euro is very much possible
 
-#### INDIA
+#### :india: INDIA
 * Boundary changes in India (Nepal/Bangladesh/POK part of Indias territory)
   - Boundaries drawn during partition will be erased.
 * Elimination of caste system in India
