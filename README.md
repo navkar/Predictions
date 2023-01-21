@@ -220,12 +220,13 @@
 * Towns and cities could be redesigned to accommodate smart tech and surveillance, as well as electric cars and charging points.
 * New forms of Transportation.
 * Heavy drone usage.
+* Herd-like mentality will transform into social justice
 * Decentralized electricity generation and transmission using smaller Nuclear fusion reactors. 
 * Humanity moving towards Kardashev scale type-1. What is Kardashev scale ? (ref:)[https://en.wikipedia.org/wiki/Kardashev_scale]
 
 > “To deny people their human rights is to challenge their very humanity.” — Nelson Mandela
 
-#### 2029 - 2030 (Adoption of Compact lifestyle)
+#### 2029 - 2030 (Adoption of compact lifestyle or selfless people)
 
 * General themes (Did you watch the movie 'Ready Player One'?)
   - Doing more with less. Humans letting go of stuff. In general, humans will own less and rent more often.
@@ -233,6 +234,10 @@
   - Reduction in physical ownership and more just-in-time renting.
   - Ability to move instantly from place to another, due to smaller and portable living spaces.
   - Heavy usage of rental services or just-in-time service providers (Inability to own or lack of ownership will be in vogue)
+  - Humans living in small pods/containers and self-sustaining nomadic communities.
+  - Blurring between Virtual and Physical reality. 
+  - Every small community shall have its own culture and values and sustainable energy source.
+  - Emergence of heterogenous structures and decentralized systems.
 
 #### Summer of 2030 (Change in monetary system) - 2032
 
@@ -280,7 +285,8 @@
 
 * New form of connectivity where the human mind shall directly connect with the internet. This is not the internet which we know of today.
 * Earth's minerals will be fully depleted, probes shall bring minerals from Astroids and 🌔 moons of Jupiter / Saturn
-* Possible deforestation of the entire planet. Greedy humans will eliminate all good plant life from mother earth.
+* Possible deforestation of the entire planet. 
+* Greedy humans will eliminate all good plant life from mother earth.
 * Space prisons might be a possibility
 * Humans working in Zero-G is a possibility.
 
@@ -304,13 +310,13 @@
 * **What made you come here, to this page right now ?**
 
 ## :books: References
-* :bookmark_tabs: 1984 - George Orwell (Dystopian)
-* :bookmark_tabs: Brave New World - Aldous Huxley (Dystopian)
-* :bookmark_tabs: The Fourth Turning - Neil Howe (Dystopian)
-* :bookmark_tabs: The Sovereign Individual
-* :bookmark_tabs: The Infantry Squad Leaders Handbook
-* :bookmark_tabs: End of Days - Sylvia Browne (Dystopian)
-* :bookmark_tabs: Atlas Shrugged - Ayn Rand
+* :book: 1984 - George Orwell (Dystopian)
+* :book: Brave New World - Aldous Huxley (Dystopian)
+* :book: The Fourth Turning - Neil Howe (Dystopian)
+* :book: The Sovereign Individual
+* :book: The Infantry Squad Leaders Handbook
+* :book: End of Days - Sylvia Browne (Dystopian)
+* :book: Atlas Shrugged - Ayn Rand
 
 ## :sunglasses: Experts who assisted me in my discovery process
 * Ted Oakley - managing partner & founder of Oxbow Advisors
