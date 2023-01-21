@@ -4,9 +4,10 @@
 :pushpin: **NOTE**: Even though extensive research has been done to come up with these, please do **NOT** blindly accept them, do your own research (DYOR).
 
 #### Message from the universe for all mortals out there... (2020s to 2031)
-* :neutral_face: Radical self-reliance (hold less cash and more phyiscal assets)
+* :neutral_face: Radical self-reliance (hold less cash and more physical assets)
 * :fire: Self-sufficiency (vegetable garden)
 * :mask: Survival skills (prevention from immunity based viruses & stupid people)
+* 🥲 Beware of false optimism and human normalcy bias
 
 > The two most powerful warriors are patience and time. ― Leo Tolstoy
 
@@ -47,6 +48,7 @@
 
 * Dollar and Global Currency Crisis starting in March-April 2023. [$DXY will be down](https://www.tradingview.com/chart/?symbol=TVC%3ADXY) 
 * Significant economy deterioration in Japan/UK and finally USA. Higher unemployment numbers.
+* Demand destruction event orchestrated to reduce prices/inflation.
 * Possibility of Dollar losing the reserve currency status.
 * Dollar De-peg by other countries. (https://www.dollarcollapse.com/)
 * Significant decline of non-USD currencies. Eg $1 = €0.80 or less. (Complete collapse of Euro possible)
