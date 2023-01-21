@@ -222,7 +222,7 @@
 * Heavy drone usage.
 * Herd-like mentality will transform into social justice
 * Decentralized electricity generation and transmission using smaller Nuclear fusion reactors. 
-* Humanity moving towards Kardashev scale type-1. What is Kardashev scale ? (ref:)[https://en.wikipedia.org/wiki/Kardashev_scale]
+* Humanity moving towards Kardashev scale type-1. What is Kardashev scale ? [read more](https://en.wikipedia.org/wiki/Kardashev_scale)
 
 > “To deny people their human rights is to challenge their very humanity.” — Nelson Mandela
 
