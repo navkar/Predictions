@@ -188,14 +188,14 @@
 * Electric :airplane: planes, you will be unable to fly more than 2 hours in a single leg of journey.
    - For example: It will take 11 days to go from USA to India (ref: United Airlines is aiming to have electric planes flying by 2030)
    - Free nuclear energy due to abundance using fusion technology. (Nuclear energy is very clean)
-   - A clear sign that electricity replaces oil/gasoline. Clear decline of hydrocarbon usage.
+   - A clear sign that electricity replaces oil/gasoline. Clear decline of `hydrocarbon` usage.
    - Decentralised networks of energy distribution. Every suburb will have its own power generation capability.
    - :rocket: New forms of transportation (Pods?) which will replace airline industry.
    - Humans will travel less but travel with more passion when they do.
 * USA will drop the word **UNITED**. Possibility of some states joining Canada. (see end of decade prediction below)
 * New building materials (**3D printed homes**) will make it effortless to move from one to place to another.
 * Mind shopping - you can visualize an item and it will show up.
-* Trans-humanism - A transhuman is a being that resembles a human in most respects but who has powers and abilities beyond those of standard humans. 
+* Trans-humanism - A `transhuman` is a being that resembles a human in most respects but who has powers and abilities beyond those of standard humans. 
    - Artifical eyes and ears and organs
    - Everyone will be nano-chipped.
    - Will we fight against the evolution of our own species? Super human-beings ?
@@ -225,13 +225,13 @@
 * Heavy drone usage.
 * Herd-like mentality will transform into social justice
 * Decentralized electricity generation and transmission using smaller Nuclear fusion reactors. 
-* Humanity moving towards Kardashev scale type-1. What is Kardashev scale ? [read more](https://en.wikipedia.org/wiki/Kardashev_scale)
+* Humanity moving towards `Kardashev` scale type-1. What is `Kardashev` scale ? [read more](https://en.wikipedia.org/wiki/Kardashev_scale)
 
 > “To deny people their human rights is to challenge their very humanity.” — Nelson Mandela
 
 #### 2029 - 2030 (Adoption of compact lifestyle or selfless people)
 
-* General themes (Did you watch the movie 'Ready Player One'?)
+* General themes (Did you watch the movie `Ready Player One`?)
   - Doing more with less. Humans letting go of stuff. In general, humans will own less and rent more often.
   - Being happy with oneself by owning less physical stuff.
   - Reduction in physical ownership and more just-in-time renting.
@@ -280,7 +280,7 @@
 * Open borders around Euro is very much possible
 
 #### :india: INDIA
-* Boundary changes in India (Nepal/Bangladesh/POK part of Indias territory)
+* Boundary changes in India (Nepal/Bangladesh/POK part of India's territory)
   - Boundaries drawn during partition will be erased.
 * Elimination of caste system in India
 
