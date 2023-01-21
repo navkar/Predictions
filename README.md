@@ -22,7 +22,7 @@
 * Stock market crash by March - June 2023. **(S&P 500 will go down to 3200)**
   - Mortals will be worried about pensions, 401Ks losing value. People will start questioning why the fund management fees are so high?
   - Weakening of company's earnings being factored into the indexes.
-  - Mass death of irrevelant public companies (100% chance) that dont have a +ve cash flow.
+  - Mass death of irrevelant public companies which do not have a positive cash flow. (100% chance)
 * Gold prices will be up in 2023, exceeding $2500/ounce after a crash. Note there will be a 'V' shaped recovery for gold after touching the bottom. (https://goldprice.org/)
 
 > The desire of gold is not for gold. It is for the means of freedom and benefit. ― Ralph Waldo Emerson
@@ -35,7 +35,8 @@
 * Appearance or finding evidence of extra-terrestrial life and organisms.
 * Humans shall become more of a realists than living in an illusion.
   - Several people will come forward and reveal the truth about the Government or their agenda.
-  - Higher reliance on AI and automation tech due to shortage of workers.
+  - Higher reliance on AI and automation tech due to shortage of workers. 
+  - Most fast foods restaurants shall have robots or heavy industrial automation of some kind which is similar to auto industry.
 * Mistrust and hatred towards governments will be in vogue.
   - Humans moving towards self-dependency and self-sufficiency. 
   - Self-employment / Small business will be in vogue, since it pays more.
@@ -51,7 +52,7 @@
 * Demand destruction event orchestrated to reduce prices/inflation.
 * Possibility of Dollar losing the reserve currency status.
 * Dollar De-peg by other countries. (https://www.dollarcollapse.com/)
-* Significant decline of non-USD currencies. Eg $1 = €0.80 or less. (Complete collapse of Euro possible)
+* Significant decline of non-USD currencies. Eg $1 = €0.80 or less. (Complete collapse of Euro is very much possible)
 * Countries will convert Forex reserves into hard assets like Gold, Food, Energy etc, and quickly move away from USD / EURO.
 
 > 'Because gold is honest money it is disliked by dishonest men.' ― Ron Paul
@@ -71,7 +72,7 @@
 
 #### Post June 2023
 
-* :thumbsup: Much better overall economy.
+* :thumbsup: Economy might look much better, which feels good.
 * Possibility of food :hamburger: shortages or empty shelves  
 * Creation of trade unions everywhere in employment.
 * **Dubai** will rise as a central hub and will De-peg with Dollar.
@@ -110,7 +111,7 @@
 * India slowly rising to **super power status**.
 * **Spirituality movement** beginning in India and shall encompass the entire world.
   - Someone like `Vivekananda` or `Bhagat Singh` shall be born and lead the spirituality movement.
-  - India shall become the country of seekers and givers, instead of being greedy people.
+  - India shall become the country of seekers and givers, instead of being bunch of greedy people.
   - Meditation/'Awakening beings' movement will start in India. (Rig Veda references)
 
 > “One should, perform karma with nonchalance without expecting the benefits because sooner of later one shall definitely gets the fruits.” ― Rig Veda 
@@ -152,7 +153,7 @@
 * Democratic movement in China.
 * Beginning of small sized governments.
 * Self-soverign individual (try developing and practicing your self sovereignty)
-* New political parties in USA. Possible end of GOP.
+* Emergence of new political parties in USA. Possible end of GOP.
 * AI generated images/videos and robots. AI will be able to draw out any image that you can describe with words.
 * Invisible realm discovery (dark matter) is a possibility
 * Healing thru Meditation and mind-body changes will be in vogue due to new frequencies discovery.
@@ -218,8 +219,9 @@
 * General themes (Did you watch the movie 'Ready Player One'?)
   - Doing more with less. Humans letting go of stuff.
   - Being happy with oneself by owning less physical stuff.
-  - Reduction in physical ownership and more just in time renting.
+  - Reduction in physical ownership and more just-in-time renting.
   - Ability to move instantly from place to another.  
+  - Heavy usage of rental services or just-in-time service providers (Inability to own or lack of onwership will be in vogue)
 
 #### Summer of 2030 (Change in Monetary system) - 2032
 
@@ -235,7 +237,8 @@
   - Significant chance of 50% reduction in population levels from 2020 to about 4 billion people.
   - Siginifcant chance of reduction in Animal species as well
 * Smaller sized decentralized governments everywhere.
-* Community Kitchens due to food shortages
+* Complete end of Covid-19
+* Community Kitchens due to food shortages.
 * Possibility of soil/water radioactive contamination in certain parts of the world.
 
 #### USA
@@ -261,6 +264,13 @@
 * Boundary changes in India (Nepal/Bangladesh/POK part of Indias territory)
   - Boundaries drawn during partition will be erased.
 * Elimination of caste system in India
+
+### 2044 
+
+* Earths minerals will be fully depleted
+* Possible deforestation of the entire planet
+
+
 
 ## :flushed: Answer the following questions about yourself for more clarity in your life!
 
