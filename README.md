@@ -115,7 +115,7 @@
 * **Spirituality movement** beginning in India and shall encompass the entire world.
   - Someone like `Vivekananda` or `Bhagat Singh` shall be born and lead the spirituality movement.
   - India shall become the country of seekers and givers, instead of being bunch of greedy people.
-  - Meditation/**Awakening beings** movement will start in India. (Rig Veda references)
+  - Meditation/`Awakening beings` movement will start in India. (`Rig Veda` references)
 
 > “One should, perform karma with nonchalance without expecting the benefits because sooner of later one shall definitely gets the fruits.” ― Rig Veda 
 
@@ -132,7 +132,7 @@
   - Waste into fertilizer (due to fertilizer shortage)
 * **People** will start to sacrifice themselves for greater good. This is very much possible in 2025.
 * Politics will see new compassionate leaders.
-* 🙂 **Reverse Brain drain** Possibility of Indian origin people migrating back to India, wishing and hoping for better lifestyle and well-being.
+* 🙂 `Reverse Brain drain` - possibility of Indian origin people migrating back to India, wishing and hoping for better lifestyle and well-being.
 
 > We should not give up and we should not allow the problem to defeat us. ― A. P. J. Abdul Kalam
 
