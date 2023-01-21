@@ -7,7 +7,7 @@
 * :neutral_face: Radical self-reliance (hold less cash and more physical assets)
 * :fire: Self-sufficiency (vegetable garden)
 * :mask: Survival skills (prevention from immunity based viruses & stupid people)
-* 🥲 Beware of false optimism and human normalcy bias [ref:](https://reboot-foundation.org/everything-you-need-to-know-about-normalcy-bias/)
+* 🥲 Beware of false optimism and human normalcy bias [read more](https://reboot-foundation.org/everything-you-need-to-know-about-normalcy-bias/)
 
 > The two most powerful warriors are patience and time. ― Leo Tolstoy
 
@@ -102,7 +102,7 @@
 #### India in 2023
 
 * RBI will introduce e-rupee (The CBDC or e-rupee is a legal tender money backed by the RBI)
-   - https://www.business-standard.com/article/finance/e-rupee-rbi-creates-rs-1-71-crore-of-digital-currency-for-retail-pilot-122120101215_1.html
+   - [read more](https://www.business-standard.com/article/finance/e-rupee-rbi-creates-rs-1-71-crore-of-digital-currency-for-retail-pilot-122120101215_1.html)
 * Possibility of earthquake/landslides resulting in mass deaths
 * Possibility of some national security related incidents.
 * Possibility of Tsunami.
