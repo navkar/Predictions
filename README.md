@@ -146,6 +146,8 @@
 * New form of Social media shall be discovered. Clear decline of Facebook/Instagram MAU's.
 * Aftermath in USA and asset values will go down. Housing and Bond markets will collapse. 
   - Only Physical Gold/Silver/Copper bar/coins and Bitcoin will work.
+  - Goverments will go against individual ownership of homes/land etc. They will come with full force.
+  - New definitions of intellectual property ownership.
   - **Hyperinflation** in USA due to currency collapse.
   
 > Inflation is as violent as a mugger, as frightening as an armed robber and as deadly as a hit man.
@@ -241,6 +243,7 @@
   - Blurring between Virtual and Physical reality. 
   - Every small community shall have its own culture and values and sustainable energy source.
   - Emergence of heterogenous structures and decentralized systems.
+  - Government will discourage ownership of any kind.
 
 #### Summer of 2030 (Change in monetary system) - 2032
 
