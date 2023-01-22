@@ -243,7 +243,7 @@
   - Blurring between Virtual and Physical reality. 
   - Every small community shall have its own culture and values and sustainable energy source.
   - Emergence of heterogenous structures and decentralized systems.
-  - Government will discourage ownership of any kind.
+  - Governments will discourage ownership of any kind.
 
 #### Summer of 2030 (Change in monetary system) - 2032
 
