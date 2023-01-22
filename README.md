@@ -216,7 +216,13 @@
 
 * Demonetization of **Gold**. Gold ceases to be a precious metal. 
   - Will Gold be precious when energy is freely available ? Gold is just compressed energy or store-of-value.
-* Beginning of fully digital era. Digital :eyes: watching you will be everywhere.
+* Beginning of fully digital era. Digital :eyes: watching humans will be everywhere.
+* `Kill Switch Tyranny` 
+  - Every piece of software will have a kill-switch logic mandated by the government.
+  - Especially `automobiles`/`drones`/`robots`/`farming tractors`. This is already part of Infrastructure bill in 2022.
+  - e.g. Political dissdents driving to a protest will be switched off.
+  - Smart meters will shutoff electricity based on peoples behavior.
+  - CBDC will shutoff humans access to resources.
 * Advances in virtual and augmented reality will transform gaming and education.
 * Quantum computing could revolutionise cryptography, big data, surveillance, digital IDs. The people may fight back with open-source technology and peer-to-peer networks.
 * Begining of Green Era (Clear Air Act). Carbon footprint labelling on packages  
@@ -343,5 +349,7 @@
 * Peter Grandich
 * Clive Thompson - is a retired wealth manager based out of Switzerland.
 * Mark Yusko - the founder, chief investment officer and managing director of Morgan Creek Capital Management.
+* Matthew Kratter - on Bitcoin and self-soverignity.
+* Dr. John Campbell - Effects of RNA vax on humans.
 * Astrologer - Anonymous.
 * Psychic - She wants to remain nameless.
