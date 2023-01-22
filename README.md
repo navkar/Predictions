@@ -50,10 +50,10 @@
 #### Global Liquidity Crisis
 
 * Dollar and Global Currency Crisis starting in March-April 2023. [$DXY will be down](https://www.tradingview.com/chart/?symbol=TVC%3ADXY) 
-* Significant economy deterioration in Japan/UK and finally USA. Higher unemployment numbers.
+* Significant economy deterioration in `Japan` , `UK` and finally `USA`. Expect to see higher unemployment numbers.
 * Demand destruction event orchestrated to reduce prices/inflation.
 * Possibility of Dollar losing the reserve currency status.
-* Dollar De-peg by other countries. [www.dollarcollapse.com](https://www.dollarcollapse.com/)
+* Dollar de-peg by other countries. [www.dollarcollapse.com](https://www.dollarcollapse.com/)
 * Significant decline of non-USD currencies. Eg $1 = €0.80 or less. (Complete collapse of Euro is very much possible)
 * Countries will convert Forex reserves into hard assets like Gold, Food, Energy etc, and quickly move away from USD / EURO.
 
