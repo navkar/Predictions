@@ -144,7 +144,7 @@
   - Significant collapse of fiat based currencies (Euro / Yen etc)
 * Post-COVID era shall begin in 2024
 * New form of Social media shall be discovered. Clear decline of Facebook/Instagram MAU's.
-* Aftermath in USA and asset values will go down. Housing and Bond markets will collapse. 
+* :open_mouth: Aftermath in USA and asset values will go down. Housing and Bond markets will collapse. 
   - Only Physical Gold/Silver/Copper bar/coins and Bitcoin will work.
   - Goverments will go against individual ownership of homes/land etc. They will come with full force.
   - New definitions of intellectual property ownership.
@@ -217,7 +217,7 @@
 * Demonetization of **Gold**. Gold ceases to be a precious metal. 
   - Will Gold be precious when energy is freely available ? Gold is just compressed energy or store-of-value.
 * Beginning of fully digital era. Digital :eyes: watching humans will be everywhere.
-* `Kill Switch Tyranny` 
+* :open_mouth: `Kill Switch Tyranny` 
   - Every piece of software will have a kill-switch logic mandated by the government.
   - Especially `automobiles`/`drones`/`robots`/`farming tractors`. This is already part of Infrastructure bill in 2022.
   - e.g. Political dissdents driving to a protest will be switched off.
@@ -261,7 +261,7 @@
 
 #### ROW
 
-* De-population :open_mouth:
+* :open_mouth: De-population 
   - Significant chance of 50% reduction in population levels from 2020 to about 4 billion people.
   - Siginifcant chance of reduction in animal species.
 * Smaller sized decentralized governments everywhere.
@@ -283,13 +283,13 @@
   - High-yield products
 
 #### Euro Zone
-* Italy and Greece will clearly, be out of Euro zone.
+* `Italy` and `Greece` will clearly, be out of Euro zone.
 * Euro currency will be replaced. 
 * Borders will be redrawn around Euro zone countries.
 * Open borders around Euro is very much possible
 
 #### :india: INDIA
-* Boundary changes in India (Nepal/Bangladesh/POK part of India's territory)
+* Boundary changes in India (`Nepal`/`Bangladesh`/`POK` part of India's territory)
   - Boundaries drawn during partition will be erased.
 * Elimination of caste system in India
 
