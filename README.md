@@ -170,6 +170,12 @@
 * Healing thru Meditation and mind-body changes will be in vogue due to discovery of a new frequency.
 * Discovery of **collective consciousness** :heart:
 
+#### 2025 Overview
+
+* Global depression begings 
+* Significant decline in asset values
+* 89yr Gleissberg cycle begins - One consistency is the Gleissberg cycle, suggested by scientist Wolfgang Gleissberg, in which changes in solar activity every 89 years corresponds with a major drought in the Midwest, Taylor said.
+
 ##### Post August 2025
 
 * :coin: New form of currency proposal. (2nd Window)
